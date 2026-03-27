@@ -1,0 +1,10 @@
+---
+title: "The Answer to why I love Erin"
+writer: "HolyAngelX"
+slug: "the-answer-to-why-i-love-erin"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/1671-The-Answer-to-why-I-love-Erin-by-HolyAngelX"
+---
+
+There is a question I never had an answer to.  And this question always left me too soon.  Now I believe I know the answer and now I know why I love my sweet heart too.  My answer to this heartful question is that our love is deeper than any other and I love her because she is Erin and no one other I love her because she is honest and we share no secrets from each other I also love her because she's all I think about and all I dream about and this is true.  I love her for her eyes when the gaze upon mine and I love her for her smile that always brightens my day.  I cry when I cant see her but I know theres always another day she is everything to me and the only other entity that can bring me this much joy if not more is god the almighty.  My life is with her and we will both soon get married.  I love her with all my heart and as hard as it may sound I could never get mad or stay mad at her for anything.  Yes there are times we fight and times I have done stupid things to hurt her and if I could I would show her that I really am sorry for the things I have done I know its simple to say im sorry but for me its not enough because she deserves alot more than just a simple sincer apolagy.  I was blessed with a sence to feel her no matter where she is I can sence her in the day as well as night when she sleeps and when shes bright.  I feel her cries and I cry too I feel her joy and im happy too.  I feel her pain while it hurts me so and I feel her anger that makes me hate too.  These are all my answers to one qeustion of why I love her and everyone can see that I love her dear she is the one for me and I believe that we will always be no matter what.
+Written August 7th, 2001 ©  on Aug 06 2001 07:16 PM PST   0  • 8
