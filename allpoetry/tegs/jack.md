@@ -1,0 +1,10 @@
+---
+title: "Jack"
+writer: "Tegs"
+slug: "jack"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6505-Jack-by-Tegs"
+---
+
+Jack really was my one true soul mate.  It’s ironic that the day after he died, the sun should be shining, the birds singing, and everyone else seems so happy.  They have no idea about the emptiness inside me, my barely concealed anguish, and the absolute loss I feel.	I’d known him for so many years,I was warned away from the place I met him in at first,‘It’s full of ferals, and most of the girls are bitches’I could not be stopped.It was as if an invisible force was pulling me,As if there was a magnet just inside the door,And I was the iron.I opened the door, and saw they were right.In every corner, the most disgusting array of ferals I’d ever seen.But then I saw him,Standing alone, his obvious disdain,for those around him so apparent.His sleek black coat looked so out of place,I went to talk to him, we knew it was love at first sight.We’d been together for so long,I just can’t believe it’s all over.We’d had a fight, over the most stupid thing.I think it was just the way I’d made his dinner,He just stormed out and ran across the road,The minute I heard the screech and skid of cars, I feared the worst.There he was, lying dead on the road.There was nothing that could be done, I just sat there next to him with his head in my arms.All the fun we’d had together, over.He was my one and only soulmate,The only one who would listen to my constant babbling.We were a match made in heaven, and now it’s over.We had a private funeral, just a few friends and family down at the park.How I’ll miss those beautiful eyes, Snuggeling up together, late into the night.The caress of his face against mine.My Jack was so amazing, was always there for me,I guess you could say, he was the best cat a girl could have.Just a bit of a play around, it's more a story than a poem.
+Written April 5th, 2000 ©  on Oct 05 2001 12:52 PM PST   0  • 14
