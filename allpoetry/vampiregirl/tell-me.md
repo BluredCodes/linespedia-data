@@ -1,0 +1,10 @@
+---
+title: "Tell Me"
+writer: "VampireGirl"
+slug: "tell-me"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4881-Tell-Me-by-VampireGirl"
+---
+
+As I sit here  I am Wondering if these bursas will ever heal,How many hearts must you steal before you settle down?So I heard you made your way all the way across townDid that relieve your stress this time? was she older then 16?You come home, But your to late IM already a sleep.You call my name, but I do not answer you just hear me weep.You put your arms around me, and I move away.You are not the same man I used to know, your cheating heart should of told you so.So many nights I stood by you, So many day's I would kiss you good bye before you went to work.Tell me how hard were those days? is your back hurting?, Because mines killing me, Especially after giving birth to three.Tell me now, How did you know the house was empty?now that IM gone do you give your self pity?Do you feel better now that you have the bed to your selfDoes it make you sleep better knowing your all lone,And by the age of 60 you will still be the same man at home?knowing that NO one would had ever of stayed as long as me.No one would of ever given you two chances times three.How many hearts will you break?I'M tired of being away, Everyday I seem to think of you.Wondering how our three boys will end up, with out a daddy.No male figure to show them around, No male figure to pick them up off the ground.  Do you know how many tears fail on my pillow? I counted each oneAnd Still I had no one to whisper good night to.Does this make you feel more manly then what you really are?If I called you today would you tell me you've changed?or would you tell me that you remain the same?Do you think there's a chance to renew our old romance?Do you think you could be the man you promised you would be?Or is this just another lye, like before?Just tell me.
+Written September 25th, 2001 ©  on Sep 24 2001 08:57 PM PST, Shelly   0  • 8

@@ -1,0 +1,10 @@
+---
+title: "Gloves & Trunks..."
+writer: "Halocination"
+slug: "gloves-trunks"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4892-Gloves---Trunks...-by-Halocination"
+---
+
+Stepping out of the crowd,And out into the street Like Mohammed Ali stepping into the ringI bite my lips and taste the blood,Curl my fists and hold them in front of my face.Hate in your stare, hate in mine tooAdrenaline in my blood, and testosterone in the airLike two rabid dogs we foam at the mouthYou through your snarling lipsMe through a crooked smile...Incisors chiseled and sparklingBlackness of my own blood on my tongueShouts and screams from the crowd around usMuscles tighten and sweat drips to speckle the asphaltThe hair on the back of my neck stands on endAs I place the blows, and receive themAbdomen, side, kidney, head, faceFront punch, uppercut, left, right, Round house...  bright flickering lightsUnchecked agression leaves you wide openOver ambition is the recipe for vulnerabilityAnd today was the day the music died.1, 2, 3, 4, 5....What did he say?7, Okay, okay, I'm getting up...Maybe the music didn't die, because I feel the soul coming backI'm that mo fo James Brown, I got soulI can dance,Where did everyone go?Who cares I still see you, as blurry as you areOh, and you have your brother with youI'm gonna kill both of you,Left, right, upper cut, reverse back punch comboI know I hit your brother, but where did you goMy eyes are burning, but all I feel is the adrenalinePumping in my veins ready to burst out of my forehead1, 2, 3, 4, 5, I'm not on the groundWhere the hell did he go?6, 7, 8, the S O B is hiding here somewhere,9, 10 They raise my hands.And mop up my brow.What the hell happened to the other guy,I remember hitting the guy that was with himI guess he got awayHold on why does everyone look like they have a twin?Uh, must have gotten hit too hard on that last oneBut I won, that's all that mattersWho cares about a concussion, or swollen eyes, What's some blood in your urine from a damaged kidneyI'm the king of the world...No offense Oscar...
+Written September 25th, 2001 ©  on Sep 25 2001 01:38 AM PST   0  • 10
