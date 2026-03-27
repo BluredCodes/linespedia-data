@@ -1,0 +1,10 @@
+---
+title: "Yet I Know"
+writer: "LitOnFire"
+slug: "yet-i-know"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4769-Yet-I-Know-by-LitOnFire"
+---
+
+I need you to hold me, yet I hate your arms.I want you to love me, yet I resist your affection.I wish I could see you, yet your smile is unwelcome.I have to talk to you, yet I know your only lies.I love remembering our memories, yet I deny making them.I cry because I love you, yet I hate the way you are.I feel miserable because you are on my mind,   yet I know I don't even cross yours.I hurt because I fell, yet you never picked me up.I laugh when I remember your smile,   yet your smile makes me cry.I'm torn because you have me, just not wrapped around your finger.I despise the fact I love the sound of your voice,   yet you never call me.I want us to be together, yet I know we just cant.How sweet I think your skin feels,   yet your hands are like a strangers.I ache when I cant think of one good thing you've done for me,   yet I bent over backwards for you.I wish for a nother chance, yet I know even that wont change the past.I regret all the days I spent in pain,   yet I feel they were all worthwhile.I loved the way you told me you loved me,    yet I knew I was just a number.I'm broken when I think of the fact I'm in lovewith someone that doesn't even care how much he hurt my feelings.I only wanted to help, yet my invatation was pushed aside.I forgive you for not being there,    yet I know you were scared because I was.I honestly hate that I still care so much,   yet I know you dont care at all.I hope you realize how much I cared about you,   yet I know you never took it to heart.I appreciate the good times we shared,   yet I know our memories were no different then any other's.I waited even through our mistakes, eventhough you never did come back.I dont think you ever intended too.I'm confused at the fact I trusted you,even when you promised to call.I'm slowly dieing in side becauseI never wanted things to end up like thisat all.This is really long, I admit, but its still worth the read!
+Written September 24th, 2001 ©  on Sep 24 2001 07:29 AM PST   0  • 1
