@@ -1,0 +1,10 @@
+---
+title: "Never Saw It Coming"
+writer: "Tracey"
+slug: "never-saw-it-coming"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5368-Never-Saw-It-Coming-by-Tracey"
+---
+
+Round the bendOver the riseEdge of your visionSudden surpriseSquare on the chinFlat on the matKnocked out the windDidn’t expect thatSet you to reelingHard to steadyHere comes the ceilingAlways unreadyWhat was the reason?To try the untestedEarly the seasonAlready bestedNo one to botherShare the emotionBurden anotherA guilty notionSelf-confidentialTrapped withinSolo essentialLegitimate winBlind side, a secondStraight to the gutUnfair you reckonUnkindest cutLife has some nerveTake you unwaryThrow you a curveToo much to carryNever a loadYou cannot lift?‘Nother dip in the road‘Nother lifeline adriftBend and bowAnd redirectAbsorb the blowIts power deflect Learn to communicateLearn to dealLearn to assimilateLearn to feelNo return ticketTough to copeAdapt, go with itBroaden your scopeBusiness as usualAt the last minuteStay your refusalDive deep within itFearful selectiveRide out the sorrowWider perspectiveHigher tomorrowFalse educationPrideful my rantNext situationReflexive ‘can’t’Again unawaresAt fortune’s behestLife on a tearNot long to restYour limitationsForwards and backLife’s allocationsKnows you can hackSet to the sideWalk in the realAfter you’ve diedAlways you healWait for the ebbTime for reviewAdmire its webYour place in it tooNext revelationManage it stillNo preparationStrength of willThoughtful dispersalNovel the roleNot a rehearsalTest of your soulMinor the missHead of the lineSubtle a kissMissing a rhymeNot to botherHere at the endComes anotherRound the bendTracey K. Scott	February 22, 2001First poem I ever posted on the web. Kevin saw and invited me to join this site.  Just never got around to posting it here till now.  I think it's self explanatory, but I'd gotten hit with a number of bad surprises, one on top of the other when I wrote it.
+Written September 28th, 2001 ©  on Sep 28 2001 03:04 PM PST   0  • 10

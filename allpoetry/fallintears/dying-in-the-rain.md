@@ -1,0 +1,10 @@
+---
+title: "Dying in the Rain"
+writer: "FallinTears"
+slug: "dying-in-the-rain"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5473-Dying-in-the-Rain-by-FallinTears"
+---
+
+As you walk along the road, leaves scuttle across your feet. The wind howls like an injured bobcat, mangled on the side of the road.A soft roar of thunder comes crashing through the trees… it pushes you back. Your tear filled eyes look up, as a streak of fire ignites in the sky.The soft pattering of rain drops sounds in your ears as the fall upon your head.You shiver, cold as a dark curtain envelops you. The drops fall harder now, like frozen daggers through your body.Once again you look up at the sky rain pelting your face, you immediately look back down…your vision blurred over.Walking proves to be a problem; you take shorter strides, your head down, looking at the ground.The wind pushes you forward as it has changed direction, pushing you over.Crawling to a place sheltered by some of the wind and rain, you lay your head upon a tree.Tears fall down your face, rolling off your nose along with the rain…collecting in a cold puddle in your lap.You shiver wrapping your arms around yourself, not having the energy to get up.The wind howls like an angry monster now, slapping your wet hair against your face.The pain it hurts so bad, you can hardly breathe. It squeezes every bone in your body…numb.You scream for help until your throat runs dry. You voice is now horse and cracked, barely audible.You realize no one can hear you, even though you knew it all along. No one cares if you live or die. Yet, there is a flicker of hope in the soul of your body. A little light still shines in your eyes.For you know, somewhere out there is someone, someone who cares. As you sit there, paralyized.You are exhausted, you want to sleep, sleep it all away.For you know, that if you close your eyes, even for a second, you shall never open them again.Help me with anything. Email Dream3485@yahoo.com
+Written September 29th, 2001 ©  on Sep 29 2001 08:58 AM PST   10  • 0  • 1
