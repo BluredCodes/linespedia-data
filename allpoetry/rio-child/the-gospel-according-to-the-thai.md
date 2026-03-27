@@ -1,0 +1,10 @@
+---
+title: "The Gospel according to the Thai"
+writer: "Rio Child"
+slug: "the-gospel-according-to-the-thai"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/3718-The-Gospel-according-to-the-Thai-by-Rio-Child"
+---
+
+Beware of those who shine like bronzeyet wear the fragrance of coffee.Make sure you do not fall for them,in your weakness wish to stain them.A man's garments are cleaned with easebut what is inside him is his.The pains of the unfulfilled liebetween the fullness and the world.Make your abode in the fullness,leave the abyss and you will know.The kairos even now is nearyou heard me and it passed you by.Kick the ladder your elders gaveand you will climb out of the hole.I will whisper into your earthe secret I reveal to all.He who hears it from me is blessed,he who hears it from you is cursed.He who brings down a soul will laughat him who brought down two of them.A man deceives himself with hope,once he learns the truth he is saved.If a man deceives anothernot even the truth will save him.A man's garments are cleaned with ease,whoever cleans his soul kills it.Peter would eat fruits wrapped in silkat night before falling asleep.Andrew said 'Your fruit is poison,keep eating it and you will die'.He never slept after that day,but he saw visions with his eyes.The shepherd sits with the fruitswhile the sheep watch him consume them.I am the shepherd that laughs out,you are the one who stares at me.I am the pearl beneath the waves,you are the one who longs for me.You are the sea embracing me,the pearl is the fullness inside.As opposed to 'chronos' which means time as an extent (3:00, two hours long), 'kairos' in Greek refers to time as an occasion.  So it can mean 'time of opportunity' or 'time of completion' or 'appointed time'.
+Written September 12th, 2001 ©  on Sep 12 2001 02:23 PM PST   0  • 13
