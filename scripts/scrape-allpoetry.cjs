@@ -98,7 +98,7 @@ url: "${url}"
 ${content}`;
 
     fs.writeFileSync(filePath, markdown);
-    updateMetadata({ title, writer, slug: poemSlug, url });
+    updateMetadata({ title, writer, slug: poemSlug, url, content: content.slice(0, 200) + (content.length > 200 ? '...' : '') });
     return { status: 'success', writerSlug, poemSlug };
   } catch (e) {
     if (e.response && (e.response.status === 403 || e.response.status === 429)) {
