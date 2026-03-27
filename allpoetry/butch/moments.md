@@ -1,0 +1,58 @@
+---
+title: "Moments"
+writer: "butch"
+slug: "moments"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6747-Moments-by-butch"
+---
+
+She awakens to the smell of coffee,
+brewing downstairs,
+in the kitchen,
+She rolls over for a few more minutes,
+but, the ugly sound,
+of alarm won't let her,
+Throwing a leg over the edge,
+the other follows,
+automatically,
+Heading to the bathroom,
+to relieve the pressure,
+built all night,
+For a flash of time,
+she doesn't recognize the reflection,
+on the mirror,
+Then she remembers,
+that age comes after beauty,
+time is always the winner,
+Drinking coffee,
+she heads out the door,
+not noticing the day,
+The drive is a blur,
+people unseen,
+cars unnoticed,
+Finally, at work,
+the desk awaits, 
+computer screen becons,
+Monotony broken only by,
+two fifteen minute breaks,
+and a half hour lunch,
+Back on the road,
+this trip longer,
+all things noticed,
+Home/sanctity appears,
+falling through the door,
+falling in on herself,
+Under the covers again,
+safe, alone, unafraid,
+sleep comes softly,
+And, dreams,
+they too come,
+to fill the gaps,
+Moment to moment,
+day to day,
+beginning to end,
+Life becomes the sum,
+the total of everything,
+all there is,
+Sometimes she cries into her pillow...........
+Written October 7th, 2001 ©  on Oct 07 2001 04:43 AM PST   0  • 1
