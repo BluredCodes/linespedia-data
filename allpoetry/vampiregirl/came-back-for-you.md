@@ -1,0 +1,10 @@
+---
+title: "Came Back For You"
+writer: "VampireGirl"
+slug: "came-back-for-you"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4574-Came-Back-For-You-by-VampireGirl"
+---
+
+The dreams that lye with in me, seem to lye at rest the time that once stood before us now sleeps in distress.Sad blue hearts feel stranded and weaker everyday, many words unspoken many words we did not say.Teary eyes has got the best of me, and it breaks my heart to see you in misery. You watched the sunset go down at dawn, and memories of you and her made you feel weaken.I wish so much I could be like you, to watch the sunset to watch the sky turn blue, but IM afraid the only thing I can see is the dark gray clouds turn to me. I wish I could kiss you every day and night, but IM unable to feel your hands touch or hold me tight. You couldn't see what was wrong with me and that's not your fault, I wished you away like I through a stone in to the sea the stone was thrown right back at me.We gave it a chance I told you what was wrong with me but I told you, you would not understand, people could not ever understand what is going on inside of me. And I ask of you to touch my face for the last time do not leave a kiss that I can not feel, do not touch my lips as if your love was real. I would cry but tear drops don't seem to fallthey are like ashes aching because my heart is breaking.and i am to tired to cry but to blind to see that the touch you gave was worth everything to me.the way you smiled at me, made me feel everything although I felt blue and looked pale, I came back from the grave for you and my love will always be here for you. And I know you will always keep me in your heart I may not remember things we did, the way you felt but you will always remember how you made my heart rupture and you made my heart melt and how I came back for you!.
+Written September 22nd, 2001 ©  on Sep 21 2001 07:08 PM PST, Shelly   0  • 1
