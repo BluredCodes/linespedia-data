@@ -1,0 +1,10 @@
+---
+title: "Innocence of a Child"
+writer: "Silver Angel"
+slug: "innocence-of-a-child"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7435-Innocence-of-a-Child-by-Silver-Angel"
+---
+
+'Look Daddy, snowballs!''Where honey?''Silly Daddy, up there in the sky.Do you see them?'The young man looks up to the skyEyes bewildered, he says 'Yes, I do see them.''Mommy calls them stars but I think they are snowballs.'The little 3 year old jumps into her daddy's arms and giggles.'Daddy that is where God lives, right?'Erhm,,,'Yes honey, that is where he lives.''And Daddy, it's where gramma is, right?'The young man shifts his weight from Foot to foot and looks very uneasy.'Ahhh..yes sweety. That is where gramma is.''Mommy told me that each star is one of God's children, and when God calls them home,they become stars.  There are lots of star out tonight, Daddy.'With a very sad look in his eyesthe father shakes his head in agreement.He then looks at his daughterAnd hugs her so sweetly.'Daddy, look!! That snowball there.. It's Mommy!See, she is twinkling and smiling at us.'The father mustered all the strength he could.Looked up, smiled and said, 'Yes honey, that has to be Mommy.She is a shining star and will always be.'The young man picked up his daughter andwalked past me with tears in his eyes.  I smiled even though myheart was breaking.  He smiled and said,'The innocence of a child.'  I wish she could stay this way forever.'I nodded my head as I watched him walk away.  I then looked up at the sky searching for a star.  A very special star.  The star that represented my infant son.  When I found it, tears began to flow.Funny, when you look at the starsThrough tears, they do sorta look like snowballs.Snowballs, stars, God..... Innocence.
+Written October 11th, 2001 ©  on Oct 10 2001 11:50 PM PST   0  • 10
