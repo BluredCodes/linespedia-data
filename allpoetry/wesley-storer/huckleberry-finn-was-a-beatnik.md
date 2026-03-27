@@ -1,0 +1,10 @@
+---
+title: "Huckleberry Finn was a Beatnik"
+writer: "Wesley Storer"
+slug: "huckleberry-finn-was-a-beatnik"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7701-Huckleberry-Finn-was-a-Beatnik-by-Wesley-Storer"
+---
+
+Floating on a mirror amid the starsMerry Mockingbirds calling from farIt's Huck and Jim at the river's whimFleeing the confines of conforming dinFloating the mysterious river of timeHearing the Bullfrog Katydid rhymeOn the wandering river's timeless brimFeeling so free it must be a sin!With mineral rich water in their veinsPast jazmine magnolia flowered lanesRoast an old Catfish over the flamesThe night paddlewheeler's soft dull roarBeware, beware! there's trouble a shoreA runaway slave and a dead boyFarewell to Pollys and old Aunt SallysFrom scorns and chores gone evermoreLike gone man! Like real gone!Stolen moonshine and corn cobs in handFrom worldly restraints forever bannedPast Jasmine Magnolia flowered standsWhere mockingbirds and bullfrogs commandNear their Mother river's endless sandFree from the world of palaces and KingsForever built on the ruins of paradiseIt's Huck and Jim at the river's whimFloating their mysterious river of kinFloating on a mirror amid the starsThe merry Mockingbirds calling on farWith nothing but freedom in their heartsI have always fancied Allen Ginsberg, and his admiration for Walt Whitman's honest, direct, and forthright style, with no restraints of convention, within reason, to be a reasonable star for any aspiring poet to follow.  Walt Whitman, unfortunately, was thought to be a homosexual by some, and this of course worked against him. I greatly fear, however, that all male poets are extremely vulnerable to this horrible prejudice, (perhaps the worst prejudice of all, because it is so destructive in its results), of being falsy branded a homosexual due to having a sensitive nature.  But alas, as John F. Kennedy once said, 'A poet must be true to himself, (or herself), and let the chips fall where they may.'
+Written October 12th, 2001 ©  on Oct 12 2001 06:16 AM PST   17  • 0  • 14

@@ -1,0 +1,10 @@
+---
+title: "Into An Abyss...."
+writer: "allagory"
+slug: "into-an-abyss"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7711-Into-An-Abyss....-by-allagory"
+---
+
+Did you see the bird falling                                                                      It fell into the sky                                                                       crashing down                                                               It's feathers stayed intact                                                               It stood up and flew away                                                             The blue sky couldn't hold it                                                                It felt better in the night                                                                   It didn't sing a song                                                                 The singing you heard                                                        is what you created in your head                                                            Because we always assume                                                              that the birds always sing                                                                   It had an odd color                                                               Really none we have seen                                                            It flew so far into the night sky                                                           that it blended in with the stars                                                            but when you think it is gone                                                         you think it had decided to leave                                                            and it doesn't talk to your eyes                                                             That bird will always be there.
+Written October 12th, 2001 ©  on Oct 12 2001 06:42 AM PST   0  • 10
