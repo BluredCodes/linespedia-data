@@ -1,0 +1,10 @@
+---
+title: "Making Amends"
+writer: "Abyssia"
+slug: "making-amends"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6187-Making-Amends-by-Abyssia"
+---
+
+Little primadonna princess, How does your fairy-tale end -Is that the evil witch that hidesBeneath your candy-coated veneer?I heard your once pristine QueendomIs now a pile of rubble...Did your pretty little handsHold the match that lit the canon?Oh, mighty super hero,Save me from my monsters!Wrap me in your shieldOf bullet-proof lies, andFend off the villian with theSword of Hypocritical Morality...If only your super powers had forseenThe cryptonite he had stashed away. O Holiest of Holies,Does my freestyle offend?I went crawling to the VirginFor my artificial sins, yet You excommunicate me still...Such blasphemy will not be tolerated.I must have really set a twist In the Pope's sacred panties. Oh great and powerful ringmaster,Tame my nonexistent beast!Show the world what a wretch I amAnd imprison me behind bars Of helter-skelter and manipulationUntil the pride of lions turns to slaughter...For gnawing on the bones of anemotional sadomasochist is truely a feast.Tell me why, sweet child,Those paperdoll promisesLie shredded at your feetWhile your small fiststightened with rageAre reddened beyond belief...Did Daddy forget to bring home your pony?Tiny girl, Your horsey is goingback where it came from.Fearless lion tamer,Your strength is no matchFor the demons you have summoned.Pious leader,Your cult status Has been shot to hell.Noble warrior,Your fifteen minutesOf fame is up.AndPoor little princess,Your lovely jeweled Crown no longer fits..... such a pity.Heh... this was meant to be rather mean, and *very* sarcastic. I'm not in too good of a mood right now...
+Written October 4th, 2001 ©  on Oct 03 2001 08:05 PM PST   0  • 9
