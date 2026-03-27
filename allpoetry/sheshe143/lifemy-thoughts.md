@@ -1,0 +1,10 @@
+---
+title: "Life..my thoughts"
+writer: "sheshe143"
+slug: "lifemy-thoughts"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/1334-Life..my-thoughts-by-sheshe143"
+---
+
+Life....I would say is a very confusing place to be. All of the confusion comes from everything that surrounds you. This world, to me, is so confusing. There are so many things that I don't understand. All of the people seem to amaze me by the choices they make in their lives. Just to see what is going to happen next. How everything is always so perfect, as if they never did wrong. To be able to look into someone's eyes and tell them everythings going to be okay. How is everything going to be okay? What will make it everything alright? What's going to be okay? My life? How are you going to make it better? To come to think, why does everything always seem to get better when you know it is never going to go away. What's the reason for all the sadness? Whats with all of the doubt? Many say life is so beautiful. Well in reality, life can be beautiful. To sit and think about what really makes life so beautiful is a very hard thing to do. Could the beauty of life be all the anger that unfolds into this world? Maybe it could be all of the tortured souls that make life so interesting. Could it be all the confusion that causes self anger?? There are so many things one could be confused about. Someone could have so much anger inside and never show it. Never doubt the confusion. Never doubt the anger. How is life a miracle? Sometimes life can only seem like a waste of time. Sometimes you can feel that you are a waste of space on this earth. In life, all you do is live to die. Why do we have to live life? Why do we have to die? What brings forth these things? Why does it have to be this way? Why does one live in happiness when there could be so much hate inside? Why is it that everyone wants their life to be so perfect? No one's life could ever be perfect. There is nothing perfect about life. There is nothing perfect about this world.By sheshe143
+Written July 30th, 2001 ©  on Jul 30 2001 08:18 AM PST   0  • 10

@@ -1,0 +1,13 @@
+---
+title: "i can feel you......................"
+writer: "sheshe143"
+slug: "i-can-feel-you"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/1447-i-can-feel-you......................-by-sheshe143"
+---
+
+i can feel you......
+the beauty of your existence.....
+as your love runs freely.....
+throughout my soul.....
+Written August 1st, 2001 ©  on Jul 31 2001 05:11 PM PST   0  • 8

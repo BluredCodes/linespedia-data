@@ -1,0 +1,10 @@
+---
+title: "My Kitten, my Kitten, my Katt"
+writer: "Brazos"
+slug: "my-kitten-my-kitten-my-katt"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/1310-My-Kitten--my-Kitten--my-Katt-by-Brazos"
+---
+
+My Kitten, my Kitten, my KattHercules KattBorn:  8:00 AM, 7-27-2001Died:  11:59 PM, 7-27-2001Your mother couldn’t bring you forth,Though she tried, and she tried, and she tried…A doctor was summoned to help your birth,With a deft knife, from her womb, you, he pried.But, you were so small, evidently born too soon,Your mother lived, but was too sick to nurse…Born with nothing, we could hear death playing his tune,But, still you tried to outrun the Devil’s curse.You clung to life with all your little strength,And we did all the things that we could think…A surrogate mom, we introduced at length,She accepted you, but still couldn’t make you drink.As time worn on, it became abundantly clear,Your precious time was almost up on this earth…I cupped my hand, and held you as the time drew near,The warmth, perhaps, your life to rebirth.But, it didn’t work, and you died with one light sigh,Listening to my heartbeat, while yours just quit…No hurry now, I held you yet, for just a little while,Then got up to do, what we all must do, at final exit.Your funeral shroud, I made from two paper towels,Down the stairs marched, taking you back to the Wild…Shovel in hand, I placed you back in Earth’s bowels,God and nature, at once regains, another lost child.You had no name in life, so I christened you in death,“Hercules”, is the name that I chose…Your spirit is worthy, for you fought ‘til the last breath,Deserving of a hero’s name at life’s close.Goodbye, HerculesHave a wonderful time playing in Kitty HeavenWith your brothers and sisters who preceded you there.We love you and miss you all.
+Written July 28th, 2001 ©  on Jul 28 2001 07:40 AM PST, Brazos Mason   0  • 1
