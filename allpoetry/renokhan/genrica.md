@@ -1,0 +1,10 @@
+---
+title: "Genrica"
+writer: "Renokhan"
+slug: "genrica"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5043-Genrica-by-Renokhan"
+---
+
+GenericaIt’s something he sees when the lights go dim,The drying dying world around him.He lies in a bed that keeps growing and controlling,All the time reaching and pulling him deepWhen all he really wants is a quiet peaceful sleep.Something's gone wrong and he's upset.The promise of his youth has not been kept,He's sick of a country that's sick of him.So stuck in its perpetual denialThat no one will change because it is so long been mired.He’d love to die youngHe buys sex everydayHere he goes againThere he goes again, doing that crap!Whining and bitching, but offering no help.He’s just too tired of dry eyes laughing All the while his cry.Crying for the future, the present, the past.Yet he offers no hope.He’s scared to hope on this dark road aheadFull of fast cars, fast woman, then ending up dead.Hope!Hope died the day he drove around and found no birds,Saw no love and felt no warmth.Instead he found strip-malls devoid of life.Buildings gasping for attention,But having no art or texture. It was the last day of childhood.That first day he awokeAnd found the world had changedEverything was insane.He’d love to die youngHe buys sex everydayHere he goes againWhy does it have to be this way?Christmas and million dollar athletes,And everything that was sacredSold to the highest bidder.What do they stand for?It makes him want to stand and shout,“Does anyone here know what it is all about?”He wants to sleep, but he’s afraid to dreamDreams of people who stopped thinking for themselvesInstead they turn to channel threeAnd fantasize of people they wish to beBeautiful, perfect and cleanBut that is just a dream.And he’s left to wonder ifAll that joins him with the restIs lost with love, stuck to lies,Forgotten in lust, Waiting to turn to dust?
+Written September 26th, 2001 ©  on Sep 26 2001 06:32 AM PST   0  • 1  • 9
