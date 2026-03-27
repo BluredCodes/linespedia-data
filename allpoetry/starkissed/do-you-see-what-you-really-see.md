@@ -1,0 +1,10 @@
+---
+title: "Do you see what you really see?"
+writer: "starkissed"
+slug: "do-you-see-what-you-really-see"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/395-Do-you-see-what-you-really-see--by-starkissed"
+---
+
+Every night I lay and think,While I listen to my music I get the creeps,Who is it that dosn't like 'Pink?'It is not I, for her music speaks.Why must I be this way?Working so hard to keep up my grades,And ending up with no time to play,Not being able to see life in different shades.As a kid,I was care free,If I had a choice I wouldn't change a thing i did,Hoping, wishing, I could just be back to 'mini-me.'To my bro I am just his annoying 'lil sister,To some teachers I am another student who is not loud,To adults I'm another one to say hello mister,To myself I am just another face in the crowd.In the first minute, of the first day,You decided what type of person I am,But you didnt know what I was going to say,Not getting to know me, you got into a jam,After being mean,You wanted to be seen.As I look at this girl,I cant tell you very much,She has hair with a curl,Also she likes sports and such,I will not judge this girl they call Kerri.If only this would be real,Hurting everyone by judging comes back,Everyone might just want to heal,Just step up to the barrier and take a hack.How do you see me?Do you even see me or am i 'just a girl?'Are you noticing me or he?Everything goes by me in a whirl.I want to live life the way I plan,Making everyone's lives the way they like it,If this happened I would have ran,Not everyone would be happy with where they sit.Kerri's one of my good friends,She is sportsy, friendly, and happy,But our friendship has bends,She isn't the type to be all sappy.If only one could see me,Not the mask i wear instead,I wish you could see me for what I want to be,If only they could look inside my head,I want to be able to drop my barrier, my discuise, my reputation
+Written May 31st, 2001 ©  on May 31 2001 03:23 PM PST   0  • 10
