@@ -1,0 +1,10 @@
+---
+title: "Please forgive me"
+writer: "Pseudoprincess"
+slug: "please-forgive-me"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5917-Please-forgive-me-by-Pseudoprincess"
+---
+
+I finally got the courage to tell you how I feltIt took so long to doAs I awaited your replyMy stomach began to knotYou then replied, what I didn't expect to hearYou felt the same as II was so happy, you don't even knowIt was getting late though, so we said good-nightI was over come with so much joy the next few daysUntil we had the chance to talk againYou asked what I had planned for the week-endAnd I had already made plans with your friendIt was supposed to be nothing, nothing at all, just hanging outYou got upset, You thought that I liked himYou were upset because this friend had a bad rep. with the girlsBut I told you Nothing would happen, Not to worry Yes, I had liked this friend for some time beforeBut those feelings were goneThose feelings were for youThe Next Night cameYour friend and I had pulled off to talk or so I thoughtOne thing lead to another and we kissedAfter awhile our kissing had fogged the windowsA car had pulled up, so we sat backThen there was a knock on the windowYour friend opened the door and who is standing there?It's you and a bunch of othersBut all I can hear is your voiceI don't say anything, I feel so sick to my stomach, as you talk to your friend like nothing happenedAfter I got home I tried to talk to youBut you won't speak to meIt looked much worse then it was, I swearI messed up, I'm sorry, I wish you would forgive meThree weeks have passed and I've wrote youI'm afraid to call, for fear you will hang upYou still won't talk to me, or even acknowledge me as we pass in the hallI know I told you nothing would happen, I wish it wouldn't have, I didn't expect it toI messed up what I waited so long forIn a matter of four days my joy was goneIt was all my faultI don't know why it happened It was/is you that I like not him!!!!!PLEASE FORGIVE ME!!!!
+Written October 2nd, 2001 ©  on Oct 02 2001 01:26 PM PST   0  • 8
