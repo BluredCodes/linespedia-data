@@ -1,0 +1,41 @@
+name: AllPoetry Auto Scraper
+
+on:
+  schedule:
+    - cron: '0 * * * *' # Every hour
+  workflow_dispatch: # Allow manual trigger
+
+jobs:
+  scrape:
+    runs-on: ubuntu-latest
+    permissions:
+      contents: write
+
+    steps:
+      - name: Checkout Repository
+        uses: actions/checkout@v4
+
+      - name: Setup Node.js
+        uses: actions/user-setup-node@v4
+        with:
+          node-version: '22'
+
+      - name: Install Dependencies
+        run: |
+          npm install axios cheerio xml2js
+
+      - name: Run Stateful Scraper
+        run: |
+          node scripts/scrape-allpoetry.cjs
+
+      - name: Commit and Push Changes
+        run: |
+          git config --global user.name "Linespedia Bot"
+          git config --global user.email "bot@linespedia.com"
+          git add .
+          if ! git diff --staged --quiet; then
+            git commit -m "chore: auto-update AllPoetry dataset and progress [skip ci]"
+            git push
+          else
+            echo "No changes to commit"
+          fi
