@@ -1,0 +1,10 @@
+---
+title: "Here's Your Hero #2"
+writer: "coyote"
+slug: "heres-your-hero-2"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/2323-Heres-Your-Hero--2-by-coyote"
+---
+
+You wanted me to be a hero and go off to win the war.You wanted me to be a hero, but you didn't know what for.So I became a hero and now I'm rolling through the door,'cause this hero's  got no arms or legs no more.You wanted me to be a hero and do what heroes do.You wanted me to stand up for the old Red, White and Blue.Well now I'll do no standing, and my mind is wasted, too,and with the drugs I'm taking I can't think of you.You planned on all the money that I'd get from Uncle Sam.That we'd get a set of wheels to let folks know that I'm the man.Now I've got some wheels and I'm motorized, almost like a planned,but I steer my wheel chair with my chin 'cause I haven't any hands.Though I smell of medication, and I'm living in a chair,and I'm crippled in my body, and way beyond repair...I'm trying to stay a useful man, though I don't believe you care,and you're half the reason of why I'm even there.Forgive or forget me, it doesn't matter anymore.I'm too ate up within myself to roll across the floor.And I'm passed the point of caring for the outside of my door,so I'll just stay here until I cross that other shore.I deleted Hero #1 because it was largely repetitious and took up space, but I include the ending here simply for comparison:Though I smell of medication, and I'm living in a chair,and I'm crippled in my body, and way beyond repair...I've tried to stay a useful man though I don't believe you care,'cause you're the fuckin' bitch who put me there.I know that I sound bitter, and it seems I've got that right,'cause the truth is not that simple, and there is no guiding light.So just let chance deal out the hand that takes me in the night...and I'll no longer put up any fight.
+Written August 24th, 2001 ©  on Aug 24 2001 01:20 PM PST   10  • 0  • 9
