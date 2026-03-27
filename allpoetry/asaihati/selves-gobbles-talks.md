@@ -1,0 +1,10 @@
+---
+title: "[]Selves Gobbles Talks"
+writer: "asaihati"
+slug: "selves-gobbles-talks"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6874-Selves-Gobbles-Talks-by-asaihati"
+---
+
+[]Selves Gobbles TalksDeep indeed in the shallowAnd shallow inside of the deepTrembling among the seas,Reading happenings and paying my fees,Walking on the sandy landAbsorbing the active pumpy fan,Riding northern, and back to south,Discovering unknowns within the doubts,Revising pictures keeps coming on,Of oldie days that humbles among,Routing courses to the roses,Being so loss in the shoeless,Knowing the outcome from the start,Chasing the blames which leads, the heart,Blaming my self, or blaming my self,In me and you there seems the true,Forgive me or not,My heart stay still keeps beating calling you,,,in day of days, we are,the only thing on the air,It’s me and youWho seems so true,Accept the blame even if it’s ashamed,We were so deep in the leap,One spirit, on soul, that covers the glowerThat kept So shallow in terms of you,As a matter of doubt or shaySeesaw So deep together a house from the leader,Shade us from striping our feather,So shallow in aimsWalk, and walk, and walk,One leg like walking lame,So shallow your right sister,You know I wanted to see you in the picture,In line of thoughts, And believe it or notWhat thoughts could write?And love could jot,You heart is worm,And mine is hot,Trembling feeling of tenders,Exploring emotions, of serenades,Trembling in some things could fade,And living like guts could not hid and shareThat is how you like it to be But living alone could only create one of two,A devil or heaven and I ant choose the devil If you wanted it to be Roads of life are wide open If we ever meet again I will meet you but as a new frameBecause We did not be same----------------------------------------------------------}-------------------------------}---------------}Sun of SaSo shallow in aimsWalk, and walk, and walk,One leg like walking lame,
+Written October 8th, 2001 ©  on Oct 07 2001 07:31 PM PST, ِِAli M.AlSaihati   0  • 13

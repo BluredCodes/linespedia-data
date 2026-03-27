@@ -1,0 +1,10 @@
+---
+title: "To Dream"
+writer: "Abyssia"
+slug: "to-dream"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6876-To-Dream-by-Abyssia"
+---
+
+Escape with me, My Love,I want to fly away.My will has grown wearyOf this earth and these chainsThat bind us to our problemsAnd spawn us Worry's slaves.Take my hand, give your trustOur grief thrown aside.If only for this nightOur spirits have no boundsAs through this window we glideTo weave amidst the constellations.Have no fear, My Love,For my heart remains true -My fascination with the stars we ridePales in comparison to you, andWere you not beside me theyWould hold no luster in my eyes.Though we rise above ourselvesThis flight is but a passing phase,For I could soar no higherThan the seventh heavenI have found walking among the cloudsWithin the depths of your soul.Can you see, My Love?Our Utopia lies ahead.The palms bend in blissTo the harmony of your voice.For each joyous tear you shedA new rainbow appears.The sunlight in your smileEchoes through midnightAnd casts a glare on all who doubtYour love to burn as bright.Small birds sing out in unisonEager to please your ears.Know this much, My Love,I vow this here and now -No trial could ever overcomeThe pleasure you invokeTo watch you as your eyes drink in This place that we share.I would give you all Creation,Were it mine for me to give.For now, this dream -Our NeverneverlandThat I hold so dear,Is all I have to bestow.It is time, My Love,The dawn awaits us both.Kiss me quick and close your eyesTo rouse and face the day;But before your feet touch the floorGlance to where I lay as I smile...For never has there beenA dream as pure and sweetAs the reality of Stirring to awaken In the warmth that you holdWithin the folds of your arms.
+Written October 8th, 2001 ©  on Oct 07 2001 09:45 PM PST   18  • 0  • 8
