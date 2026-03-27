@@ -1,0 +1,10 @@
+---
+title: "One Year & Our Love"
+writer: "kandypie"
+slug: "one-year-our-love"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5007-One-Year---Our-Love-by-kandypie"
+---
+
+One year has passedAnd here we areTo say its been a bumpy rideIs to admit to the hard times We both have facedYet still.....here we areWe've love, we've hurtWe've fought, we've criedBut through it allWe've loved unconditionallyI kept things from youAnd in the process hurt youIve learnt things from youAnd opened up to share my deepest fearsYou've done things to meAnd in the process hurt meBut you've learnt things from meAnd our love has only become strongerOne year has passedAnd here we areMy love for you has grownWith it my pride, my joy and my desireI gave to you a precious giftFor I gave my most prized possessionThe object I held close to my heartA simple cross, an ordinary necklaceA profound and symbolic representationOf the love I hold for youWhen my eyes fell upon youThose many days agoThough my head did not know itMy heart had fallen in loveFear kept my words silentActions the only clue to my feelingsWith time I came to know myselfAnd share my soul with youI love you nowEven more than that long ago dayYou have my heart And with it my soulIf I could give you the worldIt would have been yours long agoSo i give you my worldAnd beg to be part of yoursI love youI'm proud of youAnd I will hold youForever and a dayOne year has passedHere we areAnd inside my heart I knowThis is just the beginning baby~*~ To my lover, my friend, my soulmate, my everything ......Becca my baby, you have my heart and soul, my dreams and fears, and all that falls between. Everything I have to give I give to you wholeheartedly. I love you more than life itself and long for the day when I can be with you permanently to brighten the colour of your world. Thankyou for gifting me with the beauty of your love ~*~
+Written September 26th, 2001 ©  on Sep 26 2001 12:33 AM PST   18  • 0  • 8
