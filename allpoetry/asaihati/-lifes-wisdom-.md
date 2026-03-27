@@ -1,0 +1,10 @@
+---
+title: "[] Life's Wisdom []"
+writer: "asaihati"
+slug: "-lifes-wisdom-"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4268--Lifes-Wisdom--by-asaihati"
+---
+
+[] Life's Wisdom []In life I know things that are with value treated safelyIt made me keep expensive things in treasurerDeal with them with cautiousLife had taught me to be the strongest when I'm weekAnd the weakest when I'm strongLife had taught me to give every thingLife also taught me every thing is given to meLife had taught me to select the hardest aimAnd taught me to choose the best of resultsLife had taught me to be the poor when I'm richAnd the rich when I'm poorLife had taught me not to worry about a lostAnd not to be happy about a gainLife had taught me if I lost a thingAnother batter one comes alongLife had taught me to accept factsAnd what is not a fact not a fact.Life asked me to be modestNot to be like a smoke which rise and it badLife ask me to help the weekAnd be with him tell he/ she is strongLife wants me to respect every thingAnd every thing believe in thingsLife taught me to learn a thingAnd what ever a man learn he/she know nonLife taught me to stop for a whileThink of what I' v done and judge my selfLife taught me the types of friendfirst, second, and, third,The first is like the air you can stay without him/her,second like the medicine you take it when you’re ill, And the third is like the sickness, you batter leave Life had also taught me what ever you learn you still know nonhad taught me to love and on love,And without love nothing will be on lands and skieswhen you love, love softly and get deeper softly in,come to love from where it love to be coming from.Sweet sweetie  those are for you to know the sun will start to rise with our rise----------------------------------------------------------------}-------------------------------------------}----------------------------}Sun_Of_Sain life we could know, when at the same time we don't, as it never ending learning process, from birth to death,,
+Written September 19th, 2001 ©  on Sep 18 2001 09:00 PM PST, ِِAli M.AlSaihati   0  • 12
