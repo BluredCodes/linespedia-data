@@ -1,0 +1,10 @@
+---
+title: "Revelations--In the style of Despotis"
+writer: "CafeAuLait9185"
+slug: "revelations-in-the-style-of-despotis"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/2084-Revelations--In-the-style-of-Despotis-by-CafeAuLait9185"
+---
+
+Garbage Bags And Garbage HagsYou aren't listening.  It's that bleach blonde, deep fried slut over there.  Is that a bra or a shirt?  Someone should take out the trash.  Newspapers, coffee grounds, and banana peels.  She should slip on a banana peel.  Then we'd all laugh.  Laugh at the bimbo.  Haha.VW's On TVI hate this chair.  Reminds me of a car commercial.  Da da da.  Then there's the one with the singing bellybuttons.  Gives me nightmares.  Armies of lint surround me.  AAAHHH!!!  Ward them off with a Hoover.  Stole it from the door-to-door salesman.  I stole the salesman too.  He's on better behavior than my cat.  Meow.  Doesn't chase his bushy tail either.  Chases parked cars though.  Crash.  Green light, stop and go.  Where's that leash?Troubles In The District Of ColumbiaYou can't make me feel bad for the moth hole in your sweater.  I don't CARE what the sign says.  The customer is NOT always right, Nixon was NOT a crook, and Clinton did NOT have sexual relations with 'that woman.'  Wait, bad examples.  Damn gypsies.  I meant the moths, not the interns.  But whaddya know, the customer can be right.1-900-45 mmDNA and hair to prove a killer.  Curly hair.  Larry, Moe, and Curly.  Curly Sue.  Carrot Top and collect calls.  I only got one phone call.  I called Miss Cleo.  Thought she'd tell me what the jury would think.  Wasn't my fault anyway.  I thought when you pulled the trigger, water shot out.  Or paintballs.  Oops.FrostbiteNuts and bolts.  I like pistachios.  Not the ice cream though.  Mmm chocolate syrup.  Blueberry pancakes.  My toes are turning blue too.  Maybe that's why they told me not to walk barefoot in the snow.I love despotis's stuff so much that I decided to make an attempt at writing in that style.  I think this is awful.  But hey, let me know what you think.  Thought I'd post it just to find out.
+Written August 22nd, 2001 ©  on Aug 22 2001 11:57 AM PST   0  • 14
