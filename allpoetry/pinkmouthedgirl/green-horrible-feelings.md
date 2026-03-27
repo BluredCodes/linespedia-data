@@ -1,0 +1,10 @@
+---
+title: "Green Horrible Feelings"
+writer: "pinkmouthedgirl"
+slug: "green-horrible-feelings"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/2558-Green-Horrible-Feelings-by-pinkmouthedgirl"
+---
+
+Golden skin.Holier than thou.What do you think                 you're doing?Roping me in?Covering.Save ourselves              no one else will.Shit.That's all it isRemote control humanity.Lazy world.Beautiful youugly me.Cheekbones.Helpless eyes.What does she do to me?Changes my swing.Ego.Pink.She just thinks I'm pink.One dimensional:I don't exist in time.Checked out in bluegreen yellowredhorrible sick chart.Feelings.Green.Orange.Safe.Where?Older but stupidalways stupid.Beautiful smileturns me to rainstreaming down my veinsnever clotting.Won't stop           running.Avoiding me,smelling youbut don't get much out of it.Can't close my eyes,soapy now.See you       soapy.See us wetglisteningheaving.Is this right?We're slippery under Brother's hands.I love his handsbut what would you think?I don't want to disgust youbut stumble right into it.Hazy eyeswant you         to walk in here.Touch my shoulder,                  satisfy my curiosity.Soft.I know you'll be sftBut my eyes shine greenwhen you kiss her.You lie to yourself.Is it just girlish modestyor do you believe it?I burn to be your arsonist.PyromaniaI thought she was yoursand I had to leave.How could I watch you,like a freakshow attraction?You made me feel                like a fool.But that was put awaywith the tinsel.I always wanted to be a good girlbut I can't do it.He likes me when I'm bad.I love him.I don't love you.Lust.Smile again            please.White uniformso pretty.Blue eyesblonde hair.Smile at me again.Distortion.Rejection.Completion.This is the first in a series of linked poetry that I wrote as an experimental exercise, this was meant as a random stream of consciousness piece and for further pieces I arranged the same words but in a random fashion.I'm interested to know if this i
+Written August 27th, 2001 ©  on Aug 27 2001 07:55 AM PST, Louise Bell   0  • 10
