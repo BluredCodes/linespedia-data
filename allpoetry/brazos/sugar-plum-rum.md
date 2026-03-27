@@ -1,0 +1,10 @@
+---
+title: "Sugar Plum Rum"
+writer: "Brazos"
+slug: "sugar-plum-rum"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/2752-Sugar-Plum-Rum-by-Brazos"
+---
+
+Rain all day,Rain all night,That’s about the time we got in the fight.Too wet to work,We spent the day,Drinkin’ flavored rum on Galveston Bay.DRIINKIN’……sugar plum rum,I’m a son-of-a gun,Rolling on the beach in the midnight sun;HEEEYYYY……come Mr. Ceay,Come carry me away,Back to the girl who gave me a lay….One bottle down,One on the table,I thought you were looking at my girlfriend Mabel.Up we stood,And then on the floor,Killing cockroaches as we rolled to the door.Out the door,And onto the beach,Back in the joint I could hear Mabel screech.“They’re out to kill,Can’t you hear?”But all of the patrons just drank their beer.DRINKIN’……sugar plum rum,I’m a son-of-a-gun,Rolling on the beach in the midnight sun;HEEEYYYYY……come Mr. Ceay,Come carry me away,Back to the girl who gave me a lay.Out on the sand,Nothing’s the same,We thought we better quit lest we come up lame.We’re best friends,Or so we thunk,We won’t do it again ‘til next we get drunk.Back in the dive,To drink our round,But someone stole it while we lay on the ground.But we borrow a dollar,And two from some,And send Cap’n Ceay to get us some rum.SINGIN’……..sugar plum rum,I’m a son-of-a-gun,Rolling on the beach in the midnight sun.OH, HEEYYY…..Mr. Ceay,Come carry me away,Back to the girl who gave me the lay.DRINKIN’…….sugar plum rum,I’m a son-of-a-gun,Rolling on the beach in the midnight sun.HHEEEEYYYY….come Mr. Ceay,Come carry me away,Back to the girl who gave me a lay;I said,Back to the girl who gave me a lay……Er, um, I seem to have had a lot of nights like this in my life. It was fun, but it hurt a lot...let me know what you think!
+Written August 29th, 2001 ©  on Aug 28 2001 04:09 PM PST, Brazos Mason   0  • 1
