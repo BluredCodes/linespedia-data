@@ -1,0 +1,10 @@
+---
+title: "Life Isn't Fair"
+writer: "FallinTears"
+slug: "life-isnt-fair"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5546-Life-Isnt-Fair-by-FallinTears"
+---
+
+People always say that life isn’t fair,And your having so many good times that you don’t want to believe it.You say, hey this seems fair to me,But you don’t look at the people around you.Then there comes a time,When you find something you like to do.And you practice, practice, practice,And you think what could be more fun than this?Then you get let down, and the disappointment flows.You don’t think you heard right.You don’t know what went wrong.You say IF only I had done this,And IF I only had...But you can’t go change the past.You can only change the future.And that’s what people have to remember.That what’s done is done and you can’t change it.You just have to learn to live with it,However a hard and grueling task that might be.You have to make the future THAT much brighter.And not dwell on a disappointing past.You always have to remember that you believe in yourself.That you are always the champion in your mind,Because you did the best that you could.And anyone who truly knows and loves you would always believe you are your own champion, and you are their champion.But there is always somebody that is going to be better than you in everything.And you suddenly realize,That there is nothing you can do about it.You might not want to think about it,And you can go on ignoring it,But it is best if you know it’s true.You are number one in your heart.You are the only one that matters.You’re happy with yourself.You’re happy with you life.Your happy doing what you are doing.You wouldn’t change it for the world.And don’t be shocked.If you keep finding out along the years,That life isn’t fair.Anything you wish, help me out.
+Written September 30th, 2001 ©  on Sep 29 2001 06:12 PM PST   10  • 0  • 12

@@ -1,0 +1,10 @@
+---
+title: "I loved you, but you didn't love me back..."
+writer: "FallinTears"
+slug: "i-loved-you-but-you-didnt-love-me-back"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5599-I-loved-you--but-you-didnt-love-me-back...-by-FallinTears"
+---
+
+I see you and my face lights up. You call my name I smile. You make me laugh about stupid things.I loved you all the while.Your hugs had feeling behind them.You’re touch gives me a chill.I say you name with feeling.You always did what you will.You made things exciting.You had a “dangerous” vibe.You were so intriguing.My feelings did not subside.You’re on my mind all the time.Thinking of you makes me smile.You made my feelings scatter.I loved you all the while.I tried to shake my feelings.But I loved you still.I knew you didn’t feel the same way.And you still did what you will.You made me feel so special.I wonder if I made a mistake.I knew I had to do something.There are things about me I hate.I wondered if it was the right thing to do.I was scared and nervous.Finally I decided you had to know.And I gathered all my courage.I knew what was coming.Don’t ask me why or how.My heart was aching badly.But you know… now.It took me all of an hour.To make myself smile again.Because we talked about it.And things are how they’ve been.I’m very glad you know.Because it ate me up inside.We’re still friends nothing has changed.But my feelings did not subside.When I see you my face still lights up.You call my name I still smile.You still make me laugh about stupid things.And I’ll love you for a while.You’re hugs still have feeling behind them.You touch still gives me a chill.I still say you’re name with feeling.I have the power and will.Nothing has changed.I’ll be here till the end…And I’m just as glad and happy.That you are my friend.Anything Help me Out!
+Written September 30th, 2001 ©  on Sep 30 2001 08:22 AM PST   0  • 8
