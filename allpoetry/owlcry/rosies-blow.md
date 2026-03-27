@@ -1,0 +1,10 @@
+---
+title: "Rosie's Blow"
+writer: "owlcry"
+slug: "rosies-blow"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4310-Rosies-Blow-by-owlcry"
+---
+
+Pappy called her Rosey when she came homestoned, swaying, as if the mountain rolled rocky boulders  only toward her.  Towards autumn her wrap bleached,bellowing to quiet snorts, cold muller,her tale out.  The city girl in her,Mama said.  Mama never changed:When all the hound dogs humped around the porch,and the back gate-crashers slammed, Mama hidthe cash.  The older hound barked as she barked in clover or foxgloves, a robbed and ornery bitch.Rosie was Pappy’s girl, wicked though she was.  Once,in fall, she walked through a dreamall the way down the stairsteps, to stop at the mirror, a she-devillooking back with shooting eyes,who screamed the house awake.  Tonightevery traffic light blinks, the streets polar with powder.  Pappy is making the blowsnow.  His feet walk on water, tipsy-toe taps cooked up by Rosey, she waitsuntil he turns, his smiles on a sliding scale.Rosey, a tight bleached bitchrehearsed double-dealing, until ice cubes dangled ready,from baking cubed additives,into plain white rock. She could change soda into a buck, her last dollar.Sent to the yard to sharpen vocal cords,she bent so long over the splitter the chips grew thin.  When she stood up,her filled hands clean,as a cotton field and stippled with blood,Rosie felt nothing, evenwhen Mama screamed.Mama fed chicken crap to the peach trees,The peaches bloomed sweeter smellsevery year.  She said Rosie was fruitless,and would remain useless but beautiful, like blow brought in by the wind,things happened,to her.  One night, Rosey awoke on the lawn flamed,visions strung out in daylight.Next morning the Wednesday paper showed the Twin Towerssoaring through clouds.It was a signRosey would never make it back to New York City.
+Written September 19th, 2001 ©  on Sep 19 2001 09:40 AM PST   0  • 9
