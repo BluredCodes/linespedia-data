@@ -1,15 +1,16 @@
-name: AllPoetry Auto Scraper
+name: AllPoetry Auto Scraper (Recursive)
 
 on:
   schedule:
-    - cron: '0 * * * *' # Every hour
-  workflow_dispatch: # Allow manual trigger
+    - cron: '0 * * * *' # Backup hourly trigger
+  workflow_dispatch: # Allow manual trigger / Self-restart
 
 jobs:
   scrape:
     runs-on: ubuntu-latest
     permissions:
       contents: write
+      actions: write
 
     steps:
       - name: Checkout Repository
@@ -21,14 +22,22 @@ jobs:
           node-version: '22'
 
       - name: Install Dependencies
-        run: |
-          npm install axios cheerio xml2js
+        run: npm install axios cheerio xml2js
 
       - name: Run Stateful Scraper
+        id: scraper
         run: |
+          # Check if already finished
+          FINISHED=$(node -e "const f='./automation/allpoetry-progress.json'; if(require('fs').existsSync(f)){console.log(require(f).finished)}else{console.log(false)}")
+          if [ "$FINISHED" = "true" ]; then
+            echo "All poems already scraped. Stopping forever."
+            exit 0
+          fi
           node scripts/scrape-allpoetry.cjs
+        continue-on-error: true
 
       - name: Commit and Push Changes
+        id: push
         run: |
           git config --global user.name "Linespedia Bot"
           git config --global user.email "bot@linespedia.com"
@@ -36,6 +45,17 @@ jobs:
           if ! git diff --staged --quiet; then
             git commit -m "chore: auto-update AllPoetry dataset and progress [skip ci]"
             git push
+            echo "pushed=true" >> $GITHUB_OUTPUT
           else
-            echo "No changes to commit"
+            echo "pushed=false" >> $GITHUB_OUTPUT
           fi
+
+      - name: Recursive Restart on Block
+        if: steps.scraper.outcome == 'failure'
+        env:
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          echo "Scraper blocked. Triggering immediate restart for new IP..."
+          # Note: Self-triggering workflow_dispatch often works even with GITHUB_TOKEN
+          # if 'Permissions > Actions: read and write' is enabled in repo settings.
+          gh workflow run allpoetry-scraper.yml

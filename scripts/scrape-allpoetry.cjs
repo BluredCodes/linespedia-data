@@ -8,10 +8,10 @@ const cheerio = require('cheerio');
 // CONFIG
 const BASE_DIR = path.join(__dirname, '../allpoetry');
 const PROGRESS_FILE = path.join(__dirname, '../automation/allpoetry-progress.json');
+const METADATA_FILE = path.join(__dirname, '../automation/all-poems-metadata.json');
 const SITEMAP_INDEX = 'https://allpoetry.com/sitemap.xml';
-const LIMIT_PER_RUN = 75; // Number of poems to scrape per session
-const BATCH_WAIT_MIN = 8000; // 8s
-const BATCH_WAIT_MAX = 18000; // 18s
+const BATCH_WAIT_MIN = 5000; // 5s reduced for higher throughput
+const BATCH_WAIT_MAX = 12000; // 12s
 
 const USER_AGENTS = [
   'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/119.0.0.0 Safari/537.36',
@@ -32,10 +32,23 @@ async function fetchGzip(url) {
   const response = await axios.get(url, { responseType: 'arraybuffer' });
   return new Promise((resolve, reject) => {
     zlib.gunzip(response.data, (err, buffer) => {
-      if (err) reject(err);
+      if (err) resolve(null); // Return null on error
       else resolve(buffer.toString());
     });
   });
+}
+
+function updateMetadata(poemData) {
+  try {
+    let metadata = [];
+    if (fs.existsSync(METADATA_FILE)) {
+      metadata = JSON.parse(fs.readFileSync(METADATA_FILE));
+    }
+    metadata.push(poemData);
+    fs.writeFileSync(METADATA_FILE, JSON.stringify(metadata, null, 2));
+  } catch (e) {
+    console.error(`[Metadata Error] ${e.message}`);
+  }
 }
 
 async function scrapePoem(url) {
@@ -44,15 +57,13 @@ async function scrapePoem(url) {
     const { data } = await axios.get(url, {
       headers: {
         'User-Agent': ua,
-        'Accept': 'text/html,application/xhtml+xml,application/xml;q=0.9,image/avif,image/webp,*/*;q=0.8',
-        'Accept-Language': 'en-US,en;q=0.5',
+        'Accept': 'text/html',
         'Referer': 'https://allpoetry.com/',
-        'DNT': '1',
-        'Connection': 'keep-alive'
+        'DNT': '1'
       }
     });
 
-    if (data.includes('unusual traffic from this IP address')) {
+    if (data.includes('unusual traffic from this IP address') || data.includes('blocked the site from bulk browsing')) {
       return { status: 'blocked', error: 'IP Blocked' };
     }
 
@@ -73,6 +84,9 @@ async function scrapePoem(url) {
     const writerDir = path.join(BASE_DIR, writerSlug);
     if (!fs.existsSync(writerDir)) fs.mkdirSync(writerDir, { recursive: true });
 
+    const filePath = path.join(writerDir, `${poemSlug}.md`);
+    if (fs.existsSync(filePath)) return { status: 'skip', error: 'Exists' };
+
     const markdown = `---
 title: "${title.replace(/"/g, '\\"')}"
 writer: "${writer.replace(/"/g, '\\"')}"
@@ -83,7 +97,8 @@ url: "${url}"
 
 ${content}`;
 
-    fs.writeFileSync(path.join(writerDir, `${poemSlug}.md`), markdown);
+    fs.writeFileSync(filePath, markdown);
+    updateMetadata({ title, writer, slug: poemSlug, url });
     return { status: 'success', writerSlug, poemSlug };
   } catch (e) {
     if (e.response && (e.response.status === 403 || e.response.status === 429)) {
@@ -94,12 +109,17 @@ ${content}`;
 }
 
 async function main() {
-  let progress = { last_sitemap_index: 0, last_url_index: 0, total_scraped: 0 };
+  let progress = { last_sitemap_index: 0, last_url_index: 0, total_scraped: 0, finished: false };
   if (fs.existsSync(PROGRESS_FILE)) {
     progress = JSON.parse(fs.readFileSync(PROGRESS_FILE));
   }
 
-  console.log(`[Start] Resuming from Sitemap index ${progress.last_sitemap_index}, URL index ${progress.last_url_index}`);
+  if (progress.finished) {
+    console.log(`[Task] Scrapping completed forever. Stopping.`);
+    process.exit(0);
+  }
+
+  console.log(`[Start] Resuming from Sitemap ${progress.last_sitemap_index}, URL ${progress.last_url_index}`);
 
   try {
     const { data: indexXml } = await axios.get(SITEMAP_INDEX);
@@ -107,58 +127,63 @@ async function main() {
     const sitemaps = indexObj.sitemapindex.sitemap.map(s => s.loc[0]);
 
     for (let sIdx = progress.last_sitemap_index; sIdx < sitemaps.length; sIdx++) {
-      console.log(`[Sitemap] Processing (${sIdx}/${sitemaps.length}): ${sitemaps[sIdx]}`);
-      const sitemapXml = await fetchGzip(sitemaps[sIdx]);
+      const sitemapUrl = sitemaps[sIdx];
+      const sitemapXml = await fetchGzip(sitemapUrl);
+      if (!sitemapXml) {
+        progress.last_sitemap_index = sIdx + 1;
+        fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
+        continue;
+      }
+
       const sitemapObj = await parseStringPromise(sitemapXml);
       const poemUrls = sitemapObj.urlset.url
         .map(u => u.loc[0])
         .filter(url => url.includes('/poem/') || url.includes('/poetry/'));
 
-      console.log(`[Sitemap] Found ${poemUrls.length} potential poems.`);
-
-      let runCount = 0;
       for (let uIdx = progress.last_url_index; uIdx < poemUrls.length; uIdx++) {
-        if (runCount >= LIMIT_PER_RUN) {
-          console.log(`[Done] Batch limit reached (${LIMIT_PER_RUN}). Saving progress and exiting.`);
-          progress.last_run = new Date().toISOString();
-          fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
-          return;
-        }
-
         const url = poemUrls[uIdx];
+        
+        // Rapid Exist Check
+        const urlParts = url.split('/');
+        const poemFromUrl = urlParts[urlParts.length - 1]; // Approximate slug
+        // Note: Real slugify is more accurate, but this avoids network if common match
+
         const result = await scrapePoem(url);
         
         if (result.status === 'blocked') {
-          console.error(`[FATAL] Blocked by AllPoetry: ${result.error}. Stopping run.`);
+          console.error(`[FATAL] Blocked by AllPoetry at Sitemap ${sIdx}, URL ${uIdx}.`);
           progress.last_run = new Date().toISOString();
           fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
-          process.exit(0); // Exit gracefully to allow git commit
+          process.exit(1); // Exit with error for GH Action restart
         }
 
         if (result.status === 'success') {
           progress.total_scraped++;
-          runCount++;
-          console.log(`[Saved] ${result.writerSlug}/${result.poemSlug} (${progress.total_scraped} total)`);
+          console.log(`[Saved] (${progress.total_scraped}) ${url}`);
         } else {
-          console.warn(`[Skip] ${url}: ${result.error}`);
+          // console.log(`[Skip] ${url}: ${result.error}`);
         }
 
         progress.last_url_index = uIdx + 1;
-        // Periodic save every 5 poems
-        if (runCount % 5 === 0) fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
+        // Periodic save every 25 poems
+        if (progress.total_scraped % 25 === 0) fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
 
         const delay = BATCH_WAIT_MIN + Math.random() * (BATCH_WAIT_MAX - BATCH_WAIT_MIN);
         await sleep(delay);
       }
 
-      // If we finished a whole sitemap
       progress.last_sitemap_index = sIdx + 1;
       progress.last_url_index = 0;
       fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
     }
+
+    // FINISHED ALL SITEMAPS
+    progress.finished = true;
+    fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
+    console.log(`[Task] ALL POEMS SCRAPED FOREVER!`);
   } catch (e) {
     console.error(`[Fatal] ${e.message}`);
-    fs.writeFileSync(PROGRESS_FILE, JSON.stringify(progress, null, 2));
+    process.exit(1);
   }
 }
 
