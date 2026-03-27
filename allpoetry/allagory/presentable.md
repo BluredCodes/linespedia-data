@@ -1,0 +1,10 @@
+---
+title: "presentable"
+writer: "allagory"
+slug: "presentable"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7511-presentable-by-allagory"
+---
+
+I'm looking over your shoulderI see the wall behind you, it's white but not a clean whiteit's a little marked up a scuff here or a scuff thereyour looking at it now, your curious aren't yougo ahead look closer, i'll give you a lttle timehow was it, interesting, nope pretty dull huhi knew that but i just wanted you to experiance your wall.I've seen alot of walls like that. Theyaren't always white. Sometimes blue, yellow even browna brown wall. who would paint their wall brown? Only a crazy person would pain't their wall brown. Maybe brown is a crazy color.Have you ever met that kidon the block who's parents don't give himenough attention. He likes brown. So do his parents but they don't lethim wear it. He has to wear blue which he absolutly hates.He says it burns sometimes. He takes it off when he gets to schoolbut doesn't stay long because he gets into a fight.He goes home and his father beats him. His mother comes in to consolehim but he's not inthe mood because of his headache. He loves his little sisterand watches over her. She loves blue and when she wears it is the only timehe likes the color. She wore blue to scool one day. On those days he tookspecial care in watching out for her. If a boy tried to pick on her he beat the guy up.Most of his troubles came from protecting his sister. One dayhe came home late and her blue was torn and stainedand it wasn't so blue anymore, it lost ithe was wearing blue in a couple of monthshe could smell the beerhis father was dead still making his son wear bluehe got into a fighthis blue became stained and tornit lost it's blue in some places it was purplehis mom cried, his sister mourned, she'll miss himhis coffin was brown
+Written October 11th, 2001 ©  on Oct 11 2001 09:09 AM PST   0  • 10

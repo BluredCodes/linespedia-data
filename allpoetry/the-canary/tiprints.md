@@ -1,0 +1,10 @@
+---
+title: "Tiprints"
+writer: "The CanarY"
+slug: "tiprints"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7603-Tiprints-by-The-CanarY"
+---
+
+except for the snowflakes & the fingertipsfingerprintsis nothing a difference discernablebut not two trees?  which turn oversticky fingertipped printed handsand beg porridge of the impossible supernovawaiting up theresomehow different not from a spideror the little buttons the suitmen pushthe causes casualties and briefunending dissertations of insignificant reasonsthat creep in after as cunning as cat burglarsmore different possibly farther from samethan the boys & girls walkinginterlocking hands lips thighs & eyesgone missing in the languid flip of fingerstips & printson to another less interesting pageexcept for the seashells & the gullsis nothing a wondermore than waves dancing wire to wiredying finally behind a glass wall?perhaps string bikinisa sandstorm of gentle hairthe watermelon liquid trickling between lipsor curves with hands with fingerprints & tipsmade just so- to fitSince this is the first submission I've made to FadingFlower for more than a month, I feel a bit motivated to reply to some of the criticims that I have received regarding previous submissions.  First and foremost, I don't want to scare any readers away by having an unwiedly style (as in some of my poems, fashioned somewhat after the efforts of ee cummings).  The few other poems that I have here are not necessarily a precise representation of my actual style.  They were submitted in the hope of amusing (or touching) their possible readers... so, if you're one of those people who has a hard time reading poems that A  resCra mb leD up, fear not.  My typical stlye is far more accessible.Second, last, and maybe least- since praise is often no more than ego-inflation- I give my most humble and sincere thanks to that small handful of people that have had a few good words for my meager works.
+Written July 23rd, 2001 ©  on Oct 11 2001 02:59 PM PST   18  • 0  • 13

@@ -1,0 +1,10 @@
+---
+title: "Broken Heart"
+writer: "TylersGurl69"
+slug: "broken-heart"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7515-Broken-Heart-by-TylersGurl69"
+---
+
+Neither of us meant for things to go this way. I’m sure if things had been different, you’d still love me today, We were so good together, things felt so meant to be, I never could have expected what happened with you and me. Neither of us planned it, it wasn’t really our fault. Our love ended without warning, my happiness came to a hault. We had tried so hard to manage, we’d tried so hard to say, I’d given u my heart and soul because i knew u’d stay. We cried together for hours when we knew it was really the end. We promised each other that forever we’d always be best friends. I told myself to get over you, to move on with my life. To ignore the endless pain of what felt like a hundred stabbing knives. I was doing so well in my recovery from the heart break of all time. But then one day i suddenly realized that u were meant to be mine. In my heart i forgave u for everything u’d done. I let myself believe again that u were to be the one, U had always told me that u’d love me until the end. But when i called u to tell u, i realized i was just a friend. There was someone new to hold in ur arms to make u feel complete. When u told me u were forever over me, i felt my heart skip a beat, Lately I’ve been thinking a lot about what we shared I realize it’s over forever, and that i’m not the girl that’s there, Although i may realize it, that doesn’t mean i’m fine. I waited too long to tell u that in my heart u;d always be mine. So promise me u’ll think of us and what we were lucky to share. And promise me u’ll always remember that i always did and always will care
+Written October 11th, 2001 ©  on Oct 11 2001 09:26 AM PST   18  • 10

@@ -1,0 +1,10 @@
+---
+title: "“Is This The Road to Destiny?”"
+writer: "San d"
+slug: "is-this-the-road-to-destiny"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7570--Is-This-The-Road-to-Destiny---by-San-d"
+---
+
+Is this the road to Destiny? It seems I got off track.I must have taken the wrong road, a little ways on back.I meant to take the highway that took me to my destination.But along the way the devil taunted me and I excepted his invitation.I've been searching for my calling. I’ve been through thunderstormsand hail.Lightning that has knocked me off my feet and winds that scorned and wailed.Thunder that has made me deaf. Fire and brimstone that has made me blind.Is this the road to Destiny? The devil is close behind.I’ve been through rivers that turned to oceans. Barely kept my soul adrift.Climbed hills that turned to mountains, barely made it off the cliffs.Been in fields full of roses just to watch them turn to thorns.Awakened to the sunshine just to see it turn to storms.Is this the road to Destiny?  A road that has no end.With  hopeless dreams and nightmares and no one to commend.Waves that want to take me under, take away the air I breathe.Take me to that dungeon far below the brawny sea. But wait, I see a sign ahead of me. It’s vague but, yes I see.A light is shinning in my eyes and the storms are not so jaunty.The oceans are back to rivers and calmly keeping me afloat.The hail has turned to raindrops, and the devil is not so close.The thunders have gently faded, settled in far and distant skies.The mountains have turned to rolling hills with green meadows for me to lye.The fire that once blinded me now warms me whence I’m chilled.And I’ve found the road to Destiny, the road that I have tilled.
+Written October 11th, 2001 ©  on Oct 11 2001 01:13 PM PST, Sandra Kay Ratliff   10  • 0
