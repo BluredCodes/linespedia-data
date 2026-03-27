@@ -1,0 +1,10 @@
+---
+title: "Cause"
+writer: "Dennis Pickering"
+slug: "cause"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7171-Cause-by-Dennis-Pickering"
+---
+
+© 10/6/2001 Dennis L. Pickering You must want to be the CauseOr, you will be the EffectOf another’s whimsicalIdea that you are pressedFrom pro-active paradigm Things on which you want to dineThat undoubtedly can shineIn your life at just this timeIf you will aspire them toCome into your life anewWhen you will begin, just DOYou’ll find that’s the other shoeThat you can wear like the bearWho gets the affluent chairThat you want to sit withinThat does provide you a grinJust plant seeds you want to growIn your life, oh don’t you knowYou are the main act, the showWhich you become aproposAgain, you must be the causeTo acquire all your life drawsFrom this grateful universeIt just wants to give a verseYou do think is positiveFor your life provocativeThis does become your life’s questThat you achieve not in jestThese seeds of which I speak areWhat you may pull from the jarTo attain your hearts desiresWhen you ignite and inspireOthers to give you their allThat they keep within the ballGiving’s there in everyoneJust affect before they runInto the space where they hideTo remain off of the rideThat ride of prosperityAll can have regularlyWe just have to be the CauseOf all things that don’t have flawsThat we can hold with our clawsAnd address within the lawsBecause we want to do rightAnd remain out of a fightWith all others in our plightAnd not give them any frightOf their current circumstanceThey don’t know they can enhanceTheir welfare undoubtedly They have to find the right beeThe one that causes them growthAlthough they must take an oath“Give” to others in their livesWhat those others so desireWhat is that thing all desire?It’s just to be kept from mireIn any situationOccupied for durationAlso most want to be dearTo all others in their sphereAnd not be thought of as queerBy their each and every peerFINIS
+Written October 6th, 2001 ©  on Oct 09 2001 10:38 AM PST, Dennis Pickering   0  • 12
