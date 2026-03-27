@@ -1,0 +1,10 @@
+---
+title: "Drifting Rifts"
+writer: "Wesley Storer"
+slug: "drifting-rifts"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7317-Drifting-Rifts-by-Wesley-Storer"
+---
+
+In memory of the PioneersFrom rifting drifts of rippling SnowWhere icy gems like jewels glowAnd fragrant golden clovers flowWhen in Spring their blossoms showCame a Dakota pioneer skiing slowPlanning plans for coming SpringDistracting his worried frozen mindWith myriad dots of pink and greenIn the sunny snow's reflecting gleamsThinking of fragrant breathing SpringTo Jamestown city he must goIn rifting drifts of space and timeWithin the convolutions of his mindHis daughters and North Dakota BrideSick at home and ill at easeHe thinks of Norway's Crystalline SeaAnd the folks left far behindFor promise land of milk and honeyBringing cows wheat bees and treesWhere songbirds coming from the EastBringing tips of color in their wingsWill his loved ones' solitude surceaseTo Jamestown city He must goHis family sick and ill at easeTo find the doctor take him homeOn and onward trudging skiingBut his future is not to be it seemsA frigid blizzard postpones his questFound by a haystack in the SpringBy merry childrens' melodious ringEyes forever set upon the WestThis poem was inspired by the O.E. Roolvaag Novel entitled 'Giants in the Earth', an old book that has been around for years, and in the event someone should accuse me of plagiarism, all I can say in my behalf, is I can't think of any other book as worthy of being plagarized as 'Giants in the Earth', with the exception of the Bible. I expect no compensation whatsoever, for writing this poem about that book I enjoyed reading so much, except my motives for writing it are intended to be complimentary in nature, and not self aggrandizing, or mercenar.         Thank you reader.                                   Wesley Storer
+Written October 10th, 2001 ©  on Oct 10 2001 06:14 AM PST   0  • 8
