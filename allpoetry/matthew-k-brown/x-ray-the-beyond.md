@@ -1,0 +1,10 @@
+---
+title: "'X-ray The Beyond'"
+writer: "Matthew K. Brown"
+slug: "x-ray-the-beyond"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/2403-X-ray-The-Beyond-by-Matthew-K.-Brown"
+---
+
+Cry!I've faded into the specter's eyes,And die!Come with me to the planet in the sky.Follow closely little one,For I have such sites to show,Many stories to dwell upon,Tales of the broken womb, and the forgotten son.Come along and let me teach you,To x-ray the beyond,To seek new pleasures past the flesh,Farther than the mortal soul, new treasures to look upon.No longer feel!With electrodes in the tips of your fingers,And reel!From the shocking lies awake in mental pictures.No more sad goodbyes,For the ones who have left before you,No more are you warmed by blood,No more sickness to hang above you.This is not heaven my son,This plan is far more superior and divine,It has outlasted the reign of your God,It has existed since before time was time.At the control of your immortal soul lies,A vast circulation of death and life,Yours to have, for the pleasure of your wonder,Free from the confines of day and night.Take a look around you child,And tell me what you see,If your vision is blank small one,Then your will still remains weak.But as eternity carries on,You will realize the power inside,You will find that all is before you,If you are only clear enough to see the light.Why do you look so sad, young one,For you can make the world of your dreams,The pain and suffering that you've known is no more,You are free to do anything.But child do not assume,That we are totally fair,We judge with no prejudice,We take the innocent anytime, anywhere.And one day will come when you will see,That watching your loved ones die is not so bad,For then you will do as I've done for you,And take them by the hand.You may show them the wonders that you've seen,And prepare them for forever,You may teach them of our realm,Then free them to endeavor.Child you are now ready,To fly high on your own,Notice that you are a child no longer,Now you are fully grown.
+Written August 26th, 2001 ©  on Aug 25 2001 06:17 PM PST   0  • 13
