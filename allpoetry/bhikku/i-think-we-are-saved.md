@@ -1,0 +1,10 @@
+---
+title: "i think we are saved"
+writer: "bhikku"
+slug: "i-think-we-are-saved"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7045-i-think-we-are-saved-by-bhikku"
+---
+
+Open your eyes I think we are savedTake you damn sunglasses off so we can see the light of GodDodgin Mac trucksDon’t want to be held responsible yetArms above my head in signs of freedomI don’t have to hold onto anythingHands clasped to particlesMorning dew in-between these toesBut its late afternoon so that must mean I’m sweatingRehabilitation from what I used to believeSmacked by ceiling fansTrying to stand higher than what I deserveLet the voice ringEcho down pedestals and soapboxesBring everyone on the same levelFault lines I practice gymnastics inOne handed somersault over the voidWhat finesse Score 9.8Just to slip back down in Clasping dirtLooking for vines veinsSome sign of growthPerseverance Plants forcing their heads through concreteCuz we all need light warmthFrom humans or natureBake this skinLet me be acknowledged by celestial bodiesBy hot glowing orbs waiting to fall like condescending remarksTo be punished for all my sacrilege Or embracedFUCKING SOMETHINGJust like little children stealing just so there parents would notice themThat’s what I’m doing out hereThrowin pebbles into staind glassSpitting on sacred groundTrying to excite a reactionForce fed or notI really don’t careAs long as I get something in this bellyTo hold me down to the ground without adhesiveOr the tattooed  state of regretThat shit doesn’t wash offSteel wool for the mindBrillow pad for the soulNeither workingUnderpaid and over influenced Tell me how it mattersTell me exactly why I should careStaring at walls like it held some 3d imageEsoterics in modern day architecture Find geometry Rays that join me to you
+Written October 8th, 2001 ©  on Oct 08 2001 03:18 PM PST   0  • 13  • 9

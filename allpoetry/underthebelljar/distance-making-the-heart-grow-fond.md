@@ -1,0 +1,10 @@
+---
+title: "Distance Making the Heart Grow Fond"
+writer: "underthebelljar"
+slug: "distance-making-the-heart-grow-fond"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/7092-Distance-Making-the-Heart-Grow-Fond-by-underthebelljar"
+---
+
+Though I’m in the great dustbowlSomehow, I can think more clearlyI ride the current into the sunI don’t ride along the sky, I runDistorted by the dust, I see as I shouldAnd if I could make it disappear, I wouldAnd then be disappointed just because I couldThough the distance in your eyes prevailI can feel your warmth when I hold you nearAnd I can still feel it, but I no longer fearWhat you and everyone else hold so dearI go so easily into the nightThough I still cling with all my mightI seem as if I have not a clueAnd I can feel that I am numbBut, I swear to you I am not dumbAnd when this wears off, I’ll be right back with youAnd though the uncontrolled roll is a bumpy oneIt shall take me where I need to beBut, can you believe that which you cannot seeSince I felt the blood in my throat when I spokeInstead on the trees, the words I wroteEven though my thoughts are distortedMy thoughts run more freely, not having to be sortedBecause when I rhyme it seems more meaningful than proseJust because I cannot remember doesn’t mean I don’t careAnd regret fills my heart for memories lostAnd it hurts for your words and mind to be apartThough I listen, I have to try not to stareIt’s hard to believe life continues without meIf I could only always be by your sideBut, it hurts me to know of the actions I can’t seeI want you to be all that you can bePut it pains me to know you can be happy without meLet me know what you think.  How could this be better?  Are there any parts you specifically like?
+Written October 9th, 2001 ©  on Oct 09 2001 12:26 AM PST   0  • 8
