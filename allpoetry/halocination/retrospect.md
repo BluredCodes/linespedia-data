@@ -1,0 +1,10 @@
+---
+title: "Retrospect..."
+writer: "Halocination"
+slug: "retrospect"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/4482-Retrospect...-by-Halocination"
+---
+
+You can't walk in my shoes because I lost them long agoThat's why I got calluses on my feet and cracks on my toesMy fingers are all numb from bad circulationAnd I'm ready to die so it's just a matter of waitin'My future was stifled by greed of all those aroundSweat was never enough, you wanted to see blood on the groundYou hate me for things that I cannot controlMy skin, my hair, the color of my eyes, the will of my soulTo break me you took all that there wasMy life, my love, my breath, my hope, my reason, my cause.You destroyed my neighborhoods and attacked me in my homeLeft me for dead, and waiting to see me squirmBut what you don't know is going to get youAnd what you can't see is what will kill youThe human spirit is not something to doubtBecause I'll crawl on hands and knees bleeding from my mouthUntil I find you in the deserts where you hideI'll build my home on an oasis, and mark the place you diedIn those final moments all the things you'll seeYou'll look at my face, and see that you look just like meWe have the same skin, the same hair and eyes,But mine still burn bright, and yours flicker with liesWhat you believe in killing, coruption, and greed,That is what you grew from, that is what you seed.Look at my eyes and see the anger inside,The beauty of my new home the peace where my new family residesI don't hate you just the things that you do,I don't hate your skin, or your hair, or the family with youJust what you believe, just what you hold true,So leave me on my oasis, and leave my beliefs aloneI won't step on your soil if you don't come to my homeBut you still have to die, and yes I'll mark your graveAs a reminder that you were never a savior, but one who enslaved...In reply to the Open challenge from theINVISIBLEman, couldnt't do the reply thing, but hope he gets to read this...
+Written September 21st, 2001 ©  on Sep 21 2001 01:45 AM PST   0  • 9
