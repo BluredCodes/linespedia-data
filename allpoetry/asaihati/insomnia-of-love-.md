@@ -1,0 +1,10 @@
+---
+title: "[]Insomnia of Love []"
+writer: "asaihati"
+slug: "insomnia-of-love-"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6560-Insomnia-of-Love--by-asaihati"
+---
+
+[]Insomnia of Love []My Love, and My InsomniaWhat some one might think its artlessness,Well ,But,By the Highness of God,It’s lights in talks,***You See it, Unknown,no destiny accepted,nor distance,***But,it’s a very ,very, tinny line,Shores,don’t even seen a pillowfor it to lay asleep,***..From My Love, and My Insomnia,I talk to you,Not with my mouth,Do you know the depth???,Do you know the talks???,Do you know the soul???,Do you know how much flowed runs for it???,***…..From My Love, and My Insomnia,I kicked the sands of shores longing to you,I said good bye,Jewels of parlors and corals,For your what???***..From My Love, and My Insomnia,I love you even if you don’t know me,***..From My Love,and My InsomniaThe crown of watery passion,From the top of the roofs,and between me,You keep passing thru, and thru,and then set down,***..From My Love, and My Insomnia,If love come to its’ peck,You put on your tenderness in his perfumes,You com your hair,Put the softeners, and oily touching passions,and before you stretch your legs,You glorify***..From My Love, and My Insomnia,I pave the walk sides,Flowers and Roses,Whenyou pass by in the morning ,From its smiles,You inhale,You take a Big Rose,Nice looking,And, jasmines,To pleasant the coffee brake before the noon,** or **that colored one,it revolute passions,will I take it, she asked me?Passion gets shy,and she had it,***..From My Love, and My Insomnia,What some one might think its artlessness,Well ok,But,By the Highness of God,Its lights in talks,------------------------------------------------------}------------------------------------}------------------------}Sun of Sawords of light shines all the time and bloom like rose it's seasons,
+Written October 6th, 2001 ©  on Oct 16 2001 05:40 PM PST, ِِAli M.AlSaihati   0  • 8

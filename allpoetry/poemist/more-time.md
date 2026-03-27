@@ -1,0 +1,10 @@
+---
+title: "More Time"
+writer: "Poemist"
+slug: "more-time"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/6584-More-Time-by-Poemist"
+---
+
+Feelings of loveAre really strangeThe way they growAnd the way they changeBetween two lovesMy heart is tornI've picked some rosesAnd I've found a thornOne really loves meAnd you know it makes me gladBut one just wants to be a friendAnd so it leaves me sadThat old cliché must really be trueYou can't have your cakeAnd eat it tooBut I'll go on livingJust the sameAnd from time to timeI'll hear their namesAnd then I'll recallIn those times of oldHow hearts were warmAnd nights were coldAnd after awhileI might proposeTo forget bouquetsAnd just love one roseBut still, I'll wonderWhat might have beenHad those other flowersLoved me thenHow would lifeBe different todayIf the things I wantedHad gone my way?I go through life a dreamerLike a ship that's lost at sea'cause now I feel I'll never knowHow true love was meant to beCan't believe the puzzle will ever fitWhen there's a piece out of placeSometimes I run through crowded streetsThought I caught a glimpse of your faceWhy did you go?Why'd you have to leave bad news?When you know that no one elseCould ever fill your shoes.Why'd you have me thinkingYou would love me all your life?Why'd you lead me to believingThat someday you'd be my wife?You always tried to make meInto something I could never beAnd now, I finally realizeThat you never really needed meAll that time you used meJust to play your silly gameAnd looking back, I can't decideJust who was more to blameSomeday I hope you'll find the oneWho's more the type for youAnd perhaps I'll find a womanWho will really love me tooUntil that dayI'll just be aloneAnd still I'll wonder why...Why some people have more time to loveAnd others more time to cry.
+Written January 1st, 1977 ©  on Oct 06 2001 03:29 AM PST   18  • 0  • 1
