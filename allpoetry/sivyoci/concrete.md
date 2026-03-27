@@ -1,0 +1,19 @@
+---
+title: "Concrete"
+writer: "sivyoci"
+slug: "concrete"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5147-Concrete-by-sivyoci"
+---
+
+I am keeping within these walls the shadow you have cast...
+Your grey hands from above are warm and have grounded me to a foundation that will last.
+Concrete and fluted columns are my eternal strength and grace...
+Friendship of two kinds can share the same cities of space.
+The wind will guide you over and reflect you in my windows, my eyes...
+Changing of space, time and new structures will cause no compromise.
+An Architect of Greatness has designed this space for us to live, build and nourish...
+In any city your clouds may roam, my structure, my friendship will not perish.
+Concrete is what I am and my drawings demonstrate what is planned...
+Tour my halls, stairs and rooms...for I will support you now as a friend, from where I stand.for Halo...
+Written September 27th, 2001 ©  on Sep 27 2001 03:20 AM PST   18  • 0  • 13
