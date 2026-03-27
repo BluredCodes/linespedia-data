@@ -1,0 +1,10 @@
+---
+title: "Bloody Lips"
+writer: "VampireGirl"
+slug: "bloody-lips"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/3555-Bloody-Lips-by-VampireGirl"
+---
+
+Secretly I've been following you.Not knowing what words to say when I go to speak to you.You know that i'm giving you the look, as if I like you,You have seen this look a million times before. But how am I supposed to tell you. You think i'm a stalker watching over you.So I stand out side your door in the middle of the night.So I call your home just to hear your voice boy does that voice sound nice.I watch your car drive away just to see where your heading to, this day.I go in your house when you are not home To see what you've been up to.I walk around the river just to see if your swaying to the waves.I saw you at a dance club just the other night. you were wearingBlack leather pants that were very tight but you always seem to catch my eye. you ignore me as if im not around, I always feel like your letting me down.People say you should stay away from me. Or something bad may happen to youI say im in love with you, and you could never hate someone that is smothering you with love.You seem like you are happy that im around, although you tell meyou don't like me in *that way*, For some reason I remember having conversations with you just the other day. But you don't remember them.My friends tell me ive never even talked to you before. Why do I find my self everynight lying on the floor in your bedroom sleeping on your bedwhile your far far away. Why do I run my hands over everything you have touched, I know everything you do through out your whole day. Ive been secretly following you for two years. And I still not have said hi to you.Is today the right day? or should I once again just turn and walk away?I find my self leaning over your bed, For some reason theres a bump on your head, I close my eyes and think of what i just did. Seeing that i messed up but theres nothing i can do. Now is the moment I will lay down with youKiss your bloody lips and whisper softly i love you.
+Written September 9th, 2001 ©  on Sep 09 2001 04:04 PM PST, Shelly   0  • 16  • 8
