@@ -1,0 +1,10 @@
+---
+title: "You Don't See Me"
+writer: "VampireGirl"
+slug: "you-dont-see-me"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/5811-You-Dont-See-Me-by-VampireGirl"
+---
+
+Standing there, And you ignore who I really am.Ive been with you over a year. And still ive been waiting by the door.Waiting for you to let me go, Waiting for your heart to tell you no more.You keep all my belongings, in the same place thinking im coming back.you talk in your sleep like I'm so near, I am but when your awake you can't hear me. The only chance I get to touch you is when your dreaming of me,You watch video taps of our past, wishing our love would have lasted.But it did. And you don't see me.It was only a year ago, When some how or another you lost me,Ive been dead for an eternity.You think of what it would be like if I came back to you,But ive never left you. You cry all through the dayAnd I feel the morning washing away, Because you can't see me.What I wouldn't do just to be with you, for one more chance to sayI loved you, for one more chance to say I will always stay with you.And god keeps trying to take me away, I keep begging to stayJust for you to see me one more time. but the chances are slimbecause your eyes are blind, to the dead.There's little time left, before I'm gone.The cold chills that run up your spineis when I'm around, The goose bumps you get on your armsis from me being beside you,The walking down the hallway is me, waiting for you to come to me.The squeaking in your bed, is me moving around, unable to sleepbecause you don't see me.The sound of chains, and screaming, is because your holding me here.All because your in fear of letting me go.I wish you would get on with your life, and set me freeI want to be an angel and drift safely to the sea,You cannot see me, so why hold on to me?I'm another lost soul waiting to be, your future,when you die. Its hard to let you go, But I must.Tonight I will sleep with you, And whisper softlyand hope just this once you will hear me.
+Written October 2nd, 2001 ©  on Oct 01 2001 06:17 PM PST, Shelly   0  • 8
