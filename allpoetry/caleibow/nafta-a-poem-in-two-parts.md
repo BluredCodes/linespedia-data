@@ -1,0 +1,10 @@
+---
+title: "NAFTA a poem in two parts"
+writer: "caleibow"
+slug: "nafta-a-poem-in-two-parts"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/3469-NAFTA-a-poem-in-two-parts-by-caleibow"
+---
+
+NAFTA A Poem in 2 PartsPart 1 1958'Latin Americans are too content with…living on their small farms…these backward and uneducated populationsdon’t realize that they are not happy…the role of the United States is to educatethem of their unhappy state and their need for modern conveniences that we canand will provide them.' ( National Security Council Report 1949)Jacinto wakes to the green sweating morning,the birds are awake dancing waltzes in the trees.Jacinto walks the length of his wife’s brown legsand stops at the fork in the road.Jacinto washes his faceThe orange yellow circle around the wash basin reminds himof his mangos.Jacinto walks up the path to his trees,he looks back and the clouds are like angelssitting on the roof of his house,Jacinto smiles.Jacinto prunes his trees.His trees are those who died for love in past lives.He tends them and sings to them the songs of his fathers.Jacinto returns from his trees,his wife cooks tortillas,the scent draws him home.Pablo, his son plays in the dust on the floor drawing angels,Jacinto holds his son on his lap and smilesPart 2'The NAFTA treaty will mean new opportunities for the peasantsof Latin America, freeing them from the difficulties of subsistence farming…'(Time Magazine Feb, 1994)Pablo sees the rusted rim of the bus,it reminds him of the color of mangos.He steps onto the bus for work.The bus is overcowed.It drives past the Chapel of Our Lady of Guadeloupe.The angels are ashen,flightless.The bus stops.Pablo gets off and steps past a mother begging for moneyher legs cut off,she begs for a dance.Pablo goes to work,he stands at the counter,and a fat man approaches.He’s sweaty and sweet smelling,he orders a Big Mac and a Coke.Pabloignores him,and draws angels in the air.
+Written April 11th, 2000 ©  on Sep 09 2001 02:43 AM PST   0  • 9
