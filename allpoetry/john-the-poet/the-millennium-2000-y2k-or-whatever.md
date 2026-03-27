@@ -1,0 +1,10 @@
+---
+title: "The Millennium, 2000, Y2K or whatever"
+writer: "John the poet"
+slug: "the-millennium-2000-y2k-or-whatever"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/3753-The-Millennium--2000--Y2K-or-whatever-by-John-the-poet"
+---
+
+This man-made date means nothing to Natureas disasters will still occur.Earthquakes, torrential rain,mud-slides and each hurricanewill destroy people's lives and occupations,now and after these 'special celebrations.'The Millennium, 2000, Y2K or whatevercould see all people overcoming tragedy… together.This man-made date could be a new beginningto a better global understanding.There needs to be more friendly co-operationand the removal of cruel domination.Third World debts should be swept awayand constructive help ought to start without delay.The Millennium, 2000, Y2K or whatevercould see all people helping each other… together.This man-made date could end all wicked warsby forming a World Council to listen to each cause.Governments and people need to compromiseand not use the gun and bomb to terrorise.Aggression should be seen as a dinosaur of the past.A happier future could be here, at last!The Millennium, 2000, Y2K or whatevercould see all people living peacefully… together.This man-made date could be the start of an auditof our relationship with this small, beautiful planet.We must care for our natural resources on land and in the sea.Energy development and pollution limits we need to agree.Global warming needs accurate monitoringand destroying tropical rain forests needs controlling.The Millennium, 2000, Y2K or whatevercould see all people working happily… together.This man-made date could mean so much to the Human Race.To lose this opportunity would be a disgrace.You and I should be responsible educators and carers.We should give instant, collective help with any disasters.Finally, may this millennium be kind to you.Will you be thoughtful and loving in whatever you do?The Millennium, 2000, Y2K or whatevercould see all people making that unique resolution… together.
+Written November 18th, 2000 ©  on Sep 13 2001 09:07 AM PST   18  • 0  • 12
