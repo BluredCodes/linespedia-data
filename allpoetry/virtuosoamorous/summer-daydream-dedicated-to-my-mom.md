@@ -1,0 +1,11 @@
+---
+title: "Summer Daydream: Dedicated to my Mom"
+writer: "Virtuosoamorous"
+slug: "summer-daydream-dedicated-to-my-mom"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9699-Summer-Daydream-Dedicated-to-my-Mom-by-Virtuosoamorous"
+---
+
+I calmly anticipated, It was the perfect summer day with all the fixens. The warm sun, the cool breeze  caressimg my face, and the birds sang the song of summer. I sat on the swing watching the door  intently to await my mother with the white sheets,
+ As I awaited her I  day dreamed , something you get to do often when you are a child, of little men parachuted on my lawn then  running through the grass.I dreamed of travailing to far off places on my swing like  Timbuktu. When I grew tired of theses adventures I got on my knees and picked Dandy Lions and scattering the seeds so that they floated in the wind. Then slowly the door opened I stood up in excitement. Then I saw my mother gracefully walk out and in her arms the sheets. They moved in the wind like an angels robe. She tossed them over the line and clipped them tight making sure to put extra clips on just in case. When she was done she looked at me and as she smiled she said, with a giggle in her voice, "Now these sheets  better not fall because I just washed them" . With that said she slowly moved into the house. Every so often she would look over her shoulder to make sure that I wasn't going for the sheets. As she  disappeared into the kitchen I took a running start at the sheets I would run between them and inhale the sweet smells. Those sheets held the secret  of summer for me.  Something that I didn't know then is that my mom would watch from a far as she dose now......I would like to give everyone a back round on the point of this poem. It is a poem of my life as a child and if it seems real thats because it is. It is one of the few memories I have of my mother who died when I was 9 years old. When you read this don't jsut read it feel it and try to remember you memories of you mother.
+Written October 22nd, 2001 ©  on Oct 22 2001 06:44 AM PST   0  • 8
