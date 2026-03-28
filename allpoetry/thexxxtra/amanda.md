@@ -1,0 +1,29 @@
+---
+title: "Amanda"
+writer: "thexxxtra"
+slug: "amanda"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/19039-Amanda-by-thexxxtra"
+---
+
+OH AMANDA
+OH AMANDA
+HOW I LOVE THEE, AMANDA!
+
+SHE WANTED ME TO WRITE A POEM FOR HER
+SO I REPLIED 'SURE'
+SO HERE IT GOES, I HOPE IT MAKES HER PURR..
+
+AMANDA IS SO BEAUTIFUL
+I WANT TO RIP HER CLOTHS OFF
+BUT THEN SHE WOULD YELL "RAPE"
+AND I WOULD SCOFF, "I WAS JUST TRYING TO GET YOU IN SHAPE!"
+
+THIS IS A CRAPPY POEM
+BUT IT'S FOR THE ONE I LOVE
+
+OH AMANDA
+OH AMANDA
+HOW I LOVE THEE, AMANDA!I LOVE YOU AMANDA!
+This was just for fun, but I really do love you Amanda!
+Written November 29th, 2001 ©  on Nov 29 2001 04:10 AM PST   18  • 0  • 8
