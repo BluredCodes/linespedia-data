@@ -1,0 +1,10 @@
+---
+title: "truly inspiring"
+writer: "tarnishedheart"
+slug: "truly-inspiring"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/12304-truly-inspiring-by-tarnishedheart"
+---
+
+Maybe you thought you had us Americans by coming over here and showing us how stupid you were by bombing us and thinking you'd get away with it, but i just saw thousands of people cram into one large building to raise money for the people's families lives you took and I'll tell ya, that was truly inspiring. You know I go down the street now and i swear to you I see an American flag hanging in every window and I can't turn on the radio without hearing our national anthem over and over again. That must burn you up inside, the fact that you thought you'd take our pride and we proved that wasn't possible, that's truly inspiring. The fact that after all the tears that were shed because of your stupidity we can now laugh at you, laugh at your big 'plan' ,what was it, to take over the world, did you honestly think we'd back down? And now look at you, we can't find you because your hiding, your scared, that's truly inspiring. Never before did we think twice while saying the pledge of alliegance or standing up for the national anthem at the game, but you know what, because of your thoughtlessness we do it now with more pride than you could ever comprehend, truly inspiring. So, why did you do it in the first place, what was your inspiration, was it jealousy, the fact that we are able to pray the way we want to, dress the way we want to, live the way we want to and there you are, stuck in those rags you wear, living the only way your allowed. yeh i think that was it, your jealous, and that's truly inspiring.              Kinda leaves me truly inspired to come over there and kick your ass my self, you coward.
+Written November 2nd, 2001 ©  on Nov 02 2001 01:18 PM PST, Chauna   0  • 9
