@@ -1,0 +1,10 @@
+---
+title: "Chained"
+writer: "Night lord"
+slug: "chained"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/11463-Chained-by-Night-lord"
+---
+
+Someone else's thoughts in my head I must have my ownI try to earn my way, must have a better dayI feel agony and want to run awayEveryone expexcts me to take on the worlds overloadNo freedom from tyrany, oppression or hateI dove in thoutlessly and took the baitI ask why does everybody hateBecause hate is all this world has seen latelyCan't breath the air, suffication is comepleterise from the dead, no more as stale breadI want to run and have funYet I can't because I'm looking into the barrel of a gunAlways being watched, I put my head in the sand relizing I'm still wearing your arm bandA bitter taste, the taste, I know the taste fitsAs Chains rattle, sinking deeper into my skinHeavy chains, rattle my naked soulNaked and exposed for the slave that I amThe vultures suck my last breath bleedingAs life force ebbs, while I smile anyway flesh rips as you lash out cold heartedlyWith your whip of oppression, you lash out once moreLash after vicious lash, agony followsI cannot run while trapped in your gruesome chainsI awaken from the nightmare, as sweat burns my my eyeswhile chills running rampid up and down my spine sitting up only to scream in agonyAs my back still bleeds from your vicious lashesI try to get away and run, only to be yanked back to the groundwith my ankles chained down where the red rivers runsAnd I look at my wrist, as the chains flows outward to youEven out of my spine more chains pour stillHow can I escape from these wretched chainsWith my last ounce of my strength, I build up a rageI scream the song of freedom, and runThe red river flows faster as I yank out the chainsTrying to crawl away, only to be pulled back againThe taste of bitterness most foulFor now I see that your chains were not of flesh but spiritIf I continue to let you, I'll be chained to you forever
+Written October 30th, 2001 ©  on Oct 29 2001 10:34 PM PST, Michael Jason Tester   18  • 0  • 1
