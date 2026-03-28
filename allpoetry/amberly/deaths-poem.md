@@ -1,0 +1,10 @@
+---
+title: "Death's Poem"
+writer: "Amberly"
+slug: "deaths-poem"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/16470-Deaths-Poem-by-Amberly"
+---
+
+Many eons I have lived--or is that died?Have I really lived or existed for that matter?For I sit here and write down these wordsas they spin through my mind.How could one--such as Ihave a mind?Am I not portrayed as a skulldressed in blackwith a skeleton beneath?Does all see me as this scary,horrid, grotesque figurewho brings only hate?Why not see me as a beingthat brings relief to loved ones?Does that make me beautiful in thine's eyes?Does it make meSomething you can not accept?Is a skeleton anythingbut the barer of something that once meantsomething to someone?For if so, how could I have a mind;if everything rots and deteriorates.Can you not find me as beautiful as an angel?Does not angels come to thoseas they take their final breath?So what if it is I that caused them to do so?A minor detail that should be over looked.Is it so hard as to imaginemyself as God?Does he not take the living as I do?If so, who says it is not I myself,your loved ones have seen?And if so, who says I am not beautiful.Perhaps I am not in a cape of black.A gown of death.And just perhaps I do nothave a skeleton for a body.Hands made of ivory perhapsand skin of silk.My scythe is perhaps a great Triton.One Poseidon himself used.For who can negatively dispelall that I have said?...and who can positively identifyall that has been stated?For I am Death.Portrayed as an evil creature;One who is as ugly as is Evil.I am Death,and you shall all, but die.I'd *really* like to know what you thought of this.  Especially the ending stanza.  To...blunt? to..something?  Let me know, i can't wait :)
+Written February 28th, 2001 ©  on Nov 18 2001 03:28 PM PST   18  • 0  • 10
