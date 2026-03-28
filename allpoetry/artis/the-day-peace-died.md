@@ -1,0 +1,10 @@
+---
+title: "The day Peace died."
+writer: "artis"
+slug: "the-day-peace-died"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/18787-The-day-Peace-died.-by-artis"
+---
+
+On nine..one..onetwo thousand onewhen acts of terror made blood runin planes and in the Pentagonand in Twin Towersnow both gonemany trembling fingers dialed this dateof Nine...one...onethen met their fate~How ironic that this day of griefwas nine...one...onebeyond beliefthat numbers meant to bring reliefare now marked with tearsand funeral wreaths~The chaos on Flight 93met by uncommon braveryone hostage spoke of votes they'd madeto fight their captorsunafraidthey knew their planewas set to woundtheir nationsoon it'd be their tombjust citizensyet unabashedthey faced sharp bladesand flesh was slashedthen in the strugglesthat ensuedthey crashed and diedas heros truebecause each personfought and wonthat plane never made Washington~In New York City living hellTwin towers smashedthen burnedthen fellof those who went to work that daythousands of soulswere swept away~Three hundred fire fighters camepolicemen too answered the callsthey dashed up stairsand into flamesand perished in the towers fallsunselfishly they ran each oneresponding to those nine...one..onesthey breathed their lastyet still they triedon nine...one...onewhen angels cried~Inside the Pentagonthere camean act of war to kill and maimnot bulletsor a rockets flamethis missilea civilian plane~the death tolls rosean awesome tidetheir world's collapsednowhere to hidefrom madmenbent on suicide~Facing sure deathno place to runthey dialed the numbersnine...one...onewith brave goodbyesescapes deniedwith courageand American prideon nine...one...one'The Day Peace died.'~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~Artis
+Written September 15th, 2001 ©  on Nov 28 2001 03:48 AM PST    0  • 9
