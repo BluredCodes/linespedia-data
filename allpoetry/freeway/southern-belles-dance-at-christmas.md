@@ -1,0 +1,10 @@
+---
+title: "Southern Belles Dance At Christmas"
+writer: "Freeway"
+slug: "southern-belles-dance-at-christmas"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17476-Southern-Belles-Dance-At-Christmas-by-Freeway"
+---
+
+It's time to retrieve our dancing shoes while wearing a smile of cheer It's time to grab a southern gent cause Christmas time is here It's time to thank the Lord above for creating southern gentlemen God created these precious miracles proven as such by southern women We dance and hold our fellows close while twirling on the floor But we watch out for mistletoe... our clue that they'll want more We try to help our southern gents and limit their holiday stress We work hard on loving them during this season they call a mess Southern ladies have no doubt which folks made us so very great It's those southern gents that shop with us though they simply hate the wait We dance with thanks 'round the Christmas tree that's lit up in all its glory While gazing upward at the star remembering the Christmas story We stroll into Christmas parties in golden shoes that won't let us sit We dance with elves in the old folks' homes... southern gals aren't known to quit We dance amongst the snowflakes' crowds caught up in the holiday spirit We dance with love and peace in mind celebrating southern holiday magic We dance around the nativity scene with Christmas joy and love We open our arms throughout the dance hugging peace--the Christmas dove We dance while singing lots of carols thanking God for this joyous season Remembering why peace on earth evolves The Christ Child is the reason Christ sent us ladies' angels... southern gents wrapped in devilish ways But all in all these gentlemen bring love... not just Christmas--many days The Lord gift-wrapped our Christmas presents in neckties here on earth Hence...southern belles dance a lot in thanks for Jesus's birth
+Written November 23rd, 2001 ©  on Nov 22 2001 10:51 PM PST   0  • 10
