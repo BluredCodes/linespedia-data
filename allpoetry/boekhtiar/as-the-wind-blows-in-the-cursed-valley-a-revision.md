@@ -1,0 +1,10 @@
+---
+title: "As The Wind Blows In the Cursed Valley (A Revision)"
+writer: "Boekhtiar"
+slug: "as-the-wind-blows-in-the-cursed-valley-a-revision"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/18960-As-The-Wind-Blows-In-the-Cursed-Valley--A-Revision--by-Boekhtiar"
+---
+
+As The Wind Blows In the Cursed ValleyThere in a desolate pass,Where Night's ravens made their nest,A lonely tree against the ochre dust,Stoops somberly, waiting to rest.Obscured by the dark foliage,Lies a cold, obsolete body,That once ensnared fathomless rage,Of life that man called tragedy.As if answering a forlorn gust,That passes the cursed valley,The body dances with a swaying lust,To Death's phantasmagoric melody.'Never again will you go hungry,'The wintry wind seemed to whisper,'Nor be judged by man's mockery,Of a destiny made out of paper.'But, the body will never be soothed,By petty reasoning born out of pity,For his only crime was to be in the truth,Forever lost in the mist of reality.'Was it evil to rid the world,'The ragged corpse seemed to cry,'Of a viper that has swallowed a pearl,That has nothing to lose but its lie?''And to take the pearl away,'Continues the dead with silent dignity,'For a wretched mother who lays,Beside her hungry children, helplessly?'But, no one is there to listen, to understand,This once living husk we called man,Save the carrions with their incoherent rant,Eyeing their prize with a greedy dance.    And so, the evening breeze continues to howl,As the body stares ruefully at the approaching dusk,No solace would he find in Night's comforting cowl,With a noose for a necklace and Doom for a mask.Thus lies a cold, obsolete body,Obscured by the dark foliage,Of life that man called tragedy.That once ensnared fathomless rage.By Boekhtiar bin Borhanuddin (Circa 1999)(Revised 2001)This is a revision of the poem 'In the Cursed Valley' by deleting the final original stanza and adding 3 more new stanzas. What do you think about it?
+Written November 29th, 2001 ©  on Nov 28 2001 04:49 PM PST   0  • 10
