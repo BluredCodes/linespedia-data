@@ -1,0 +1,10 @@
+---
+title: "Pepto-Bismal"
+writer: "silver"
+slug: "pepto-bismal"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/18107-Pepto-Bismal-by-silver"
+---
+
+Damn pepto-bismol,And it's vile taste.Like peppermint gum gone awry.It's slips down my throat and I want to barf,Curse that walnut pie...Now I sit,So I can pay my dues,I bet the gods of irony are happy.When I created this crap I told all the world that it was meant for good,They didn't know of my plot.All the people would over indulge,Thinking themselves safe from heart-burn,Diarrhea,Nausea,And any malady related to the stomach in general,They would consume the instrument of my domination by the thousands,Pouring it down their throat with glee...But with each little spoonful,A small amount of arsenic would be taken.I would use the money from those who bought it,To buy the worlds supply.Then after they found they needed it,To simply survive,I would command that I be made world dictator,And they would comply.Rich happy and in charge I would lead the planet earth.And eventually take over the universe,Those aliens wouldn't stand a chance against me.Now I sit sadly,As I have it poured into me...Oh how terrible this is,It has to be a conspiracy,I wonder who the ringleader was,They had to have known my weaknesses,Could it be?Damn it!I let my guard slip for a moment and aspirin steps in.Someday though I vow,I will rule the world!The moment my tummy feels better...Hopefully this stuff acts as quickly as it is supposed to,And if it doesn't I'm screwed.So just remember my friends,Buy Pepto-Bismal!And if you don't I'll pay hit men,To go after you.(I can't afford any risks...you won't tell anyone will you?)I didn't know wat 2 write so i wrote about wat was on my mind...it was either this or Napoleon being reincarnated into the body of an alien squrrel...if u have any suggestions for improvement though they are seriously welcome...
+Written November 25th, 2001 ©  on Nov 25 2001 10:30 AM PST   0  • 14
