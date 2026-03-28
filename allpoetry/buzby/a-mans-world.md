@@ -1,0 +1,10 @@
+---
+title: "A Man's World?"
+writer: "Buzby"
+slug: "a-mans-world"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10056-A-Mans-World--by-Buzby"
+---
+
+A Man’s World?Wolf whistles have become harassment - we mustn’t do them any moreAnd we get called chauvinistic, just for opening a door!We must become more ‘sensitive’, get to know our ‘feminine side’Discuss our inner thoughts and fears, leave nothing hid insideWhile I work for a woman who always wears mens’ suitsAnd treats us with all the elegance of a pair of steel capped boots!Girls in skimpy clothing?  We must look the other wayIt’s their business how they dress, us men don’t have a sayOf daily household chores, we must now take a turnIf we can not change a nappy, then it’s high time that we learned!You women wear the trousers, in our modern day lifeYou play the role of husband, and we must be the wifeI married a nineties woman and lord I love her soShe’s teaching me all the things that a nineties man must knowI know all the women issues up-side-down and in-side-outFeminists and lesbians - I know what they’re about.I know she needs her freedom, and on ‘girlie’ nights must goI know how to iron shirts - I’ve even learned to sew!But please tell me where my wife is, while I’m keeping the house all neatShe’s found herself a biker man, to sweep her off her feetI know that he can’t cook, and I’m sure he wouldn’t cleanBut suddenly my wife wants a man who’s oh so meanSo I ask her why she’s leaving me - I just want to understandAnd she tells me I’m a wimp, while a biker’s a 'real man'She says she doesn’t know, why I have changed so muchShe says I always used to have the masculine touchSo I’m sorry all you feminists but I must now disagreeThe advantage of being caring, I’m afraid I just can’t seeSo I’ll go  back to my old ways - I’ll smoke and drink and fartAnd I’ll join the lads in the pub tonight, and pull meself a tartPS, I'm not a man, I'm a woman, I just think men have a tough time trying to please the modern woman and thought it would be fun to have a light hearted look at the situation.  Hope you enjoy!
+Written October 24th, 2001 ©  on Oct 23 2001 11:17 PM PST   0  • 14
