@@ -1,0 +1,10 @@
+---
+title: "Embrace the Darkness"
+writer: "Doc Watson"
+slug: "embrace-the-darkness"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/19678-Embrace-the-Darkness-by-Doc-Watson"
+---
+
+The Crimson sunsetleaking blood into the sky;mortally wounded, It sinkseven the blood of the lightslips away into the DarknessSo abandons us in this way-anything and everything doesThe Life of the sun,The Love for the one;bled as the light is leechedby the DarknessDarkness, the culprit once againnot the darkness of Nighta nocturnal prowler, in searchof Those who have fallen behind,of Those who stumble in the snow;but the Darkness of the Soulthe rejection only It can vomit,retching it out in spasmic bursts,as one would rid himself of Posion...Rejection...the Poison of the heartthe Splinter of the mind's eyea glimpse at the reflection in the mirrorwhich glimmers with self-Doubt,glistens with tears, and overflowspouring over into the body....the murky, cloudy waters ofa violated, Poisoned stream,a violated, Poisoned heart,a violated, Poisoned soul,as the Bile of the soul,the Refuse of the heart,the Venom of the spirit,courses through the veins of the bodyWe are taken by the Nightthe next Victim of theSuccubus of the Sour;Drinker of the Decimated;Bitch of the Barren;Concubine of the Convoluted;Painter with the Poison Brush;Fellator of the Foultaken to the bed with an unholy intentthe Demonic intercourseof the Leper and the Lostand as they culminate,the leprosy spreads,the muddy waters dilute,the sun Bleedsand the Darkness takes hold of it alltake hold of you,takes hold of me.sooner or later(mostly later)you learn that after Rejectionand AbandonmentDarkness is all that's leftand you embrace It.love It.want It.welcome It.-----------Embrace the Darkness
+Written December 1st, 2001 ©  on Dec 01 2001 02:42 PM PST   0  • 1
