@@ -1,0 +1,10 @@
+---
+title: "Don't"
+writer: "deviousgirl"
+slug: "dont"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/20068-Dont-by-deviousgirl"
+---
+
+Not standing all too stable,careful because I will falter.Don't let me talk for all I can do is cry.Don't let me be by myself,because I'm not that strong.Too much has happened for me to feel safe.I've had everything consistant fall apartMy world has shattered, and all understanding is gone.Don't let me walk by myself, someone hold my hand.Don't let me stand alone too long,because then you'll never get me back.Don't let me tell you it's nothing,because there is always something.Don't let me tell you to go away,because I really need someone to stay.I'm scared, and I've never felt this way.Stressed to the max, and shaking so bad.Thinking the worst,because nothing seems better.She said that I punished myself worse thenany other ever could.Does that make the pain dissolve any faster?Don't let me cry, because it'll never be the same again.I'm trembling, and they've never seen this before.They don't know this side of me, and to be honest, nor do I!Don't let me loose control,because it takes too long to regain.Don't let me do it by myself,because it will never get done.Don't let me try to tell you, because then the tears will come.Don't do anything but hug mebecause that's all that I can take.Don't make promises that you can't keep,because you shall be held to them.I'm very vulnerable now, and anything can hurt.Don't make me tell you the story,it will come out in time.Don't let me go by myself I may not always come back.Don't be anything but here,because that's what I need.I need you to hold me, I need the breath of life.I need a watchful eye,someone who will catch me when I fall.I need a comforting shoulder to cry on.I need a select few to care.Please, don't tell me it's just a dream and thatit will get better.Don't tell me that I'll be alright.Don't tell me that I can make it fine alone.Don't let me talk,because all I can do is cry!
+Written December 3rd, 2001 ©  on Dec 03 2001 11:30 AM PST   18  • 0  • 10
