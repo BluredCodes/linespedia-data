@@ -1,0 +1,10 @@
+---
+title: "'The Definition of Sex'"
+writer: "Dreaming Turtle"
+slug: "the-definition-of-sex"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/12578-The-Definition-of-Sex-by-Dreaming-Turtle"
+---
+
+Definition of sex: A sacred dance & celebration of union; Expression of passion between one another~a sweaty consummation for two lovers, me without is a complete drag & total self-destructive bummerHow I long to season with her throughout the coming summer, her & I (as one) together~running right through each other, through fields, streams & into her cave, a candle lit pleasure where I will lay her down & bed her(Lustful thoughts) for her that have become now my prayer, her beauty like a full moon shining down along natures pine~glowing inside my every desire, (romancing as one) into a groove that will become a slow dance of (bump & grind)And the peaking leaves ruffle & play their tune, making love for (Midsummers dance), her warming creek will I find~as will I kiss it along the rapids, kiss the outer walls of her tunnel 'till she begs through the insides for me to climbI provide the tree, traveling under water inside of her river making blissfull brushes against her river bed~coloured in pink, her taking my hand & every thought within my head unto a night of fleshly events where our union has just ledAnd not a single passion inbetween us has fled, she lusts me as I do her, our intimacy as addictive as narcotic prescription meds~or liason being potent as lead, our unmistakable zenith easing away any of our possible dreadThat's right, (Perpetual Fornication) is what I said, lover I offer you everything and the definition of sex~all of these things natural from the moment we first flex, exchanging presents that are kisses grazing along of eachothers necksAnd whatever else natural that comes next, I live for this consumption between us that I've written in text~so that when I find you Nirvana may exist, Won't you come to know my world uncensored, bathed by kiss, and one hundred percent, completly undressed?.........
+Written November 4th, 2001 ©  on Nov 04 2001 03:13 AM PST   0  • 16

@@ -1,0 +1,10 @@
+---
+title: "I Soar"
+writer: "tarnishedheart"
+slug: "i-soar"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/12684-I-Soar-by-tarnishedheart"
+---
+
+The music notes i see dancing before my eyes are magnificent at the very same time when everything in my life when everything in my life is going excaclty the way i want it to and then all of the sudden it all                       stops. Then it gets twisted and all of the sudden those music notes all fall and I'm left with nothing but memories of precious smiles I took for granted for so long and all of the sudden              I want to die. From some unseen forgotton place I find my strength again and pick myself up, your name still dancing around in my head and I cry and cry wondering what it will take to make you love me and even if that's possible and then                    I wait. I sit on my front porch at night and want to cut you into pieces and replace the stars with you because you take me that high and all the world would be able to see, maybe not understand, but see, and all I keep saying is                     until. Everday I do the same things over and over and everyday my love keeps getting stronger and stronger and I can't help but wonder if one day I will lose all of my sanity and go completly insane from undying love and for that reason and only that                     I pray. I still go about my life, but wonder if I want it to be mine, wouldn't it be better saying ours, wouldn't life be brighter? I can't help but thinking we've walked to the line togehter this long, that one more step we need to make it across to that beutiful place is one of the hardest steps a man and a woman ever have to make, but isn't it worth it, and then                 I wonder. Even if I would consider loving another man think of all the comparing I would do, mind tiring situation. Any man could love me, but it takes a real man to complete me, and that's what you've done, and suddenly                       I believe!
+Written November 4th, 2001 ©  on Nov 04 2001 01:05 PM PST, Chauna   10  • 0  • 8
