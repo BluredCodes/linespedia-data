@@ -1,0 +1,10 @@
+---
+title: "little boys need more"
+writer: "passwerdz"
+slug: "little-boys-need-more"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8094-little-boys-need-more-by-passwerdz"
+---
+
+all your lifewe tried to findthe lightat the tunnels endwe tried so hard to 'fix it' for youbut it was never easy thenhard to explain the child you werethe easiest DIFFICULT childcrying and laughing came easilyfrustration the whole whilethrough it all somehowyou walked in stridejust happy to be aliveeven on the hardest daysmy heart was full of pridetiny blonde headlittler handsfeet in baby sizefor someone considerd 'special needs'you were pretty wisenever your faultthe hardest timeswe tried to not blame youbut there came a timewhen dad and I feltwe'de done all that wecould dowe held on for so longin hopethat somehow, our best was good enoughbut slowly,it occurred to uswhat you needed most would be real toughyou needed to be givenlove complete and unconditionaland though we triedwe always feltthat wasnt ours to give youlittle boys need more than justa passing glance, high fivesI always realised deep insideI couldnt give you what I gave mine.The last day that I held youas I passed you off to themI couldnt help but wonderson, will I ever see you again?I couldnt know that was the last timeIde never hear your voice againthat the life that I had promised youwas so soon about to end.Im told that you are in a PLACEwhere there are no struggles to be hadwhere you will knowjust looking downhow much you were loved by your mom and dad.Its hard for me to understandthat one whole month ago todayI gave you uplet you goand watched you carried away.this was written a month after my little boy, (a foster child, also my nephew,) had been placed with his new adoptive family..its a LONG story...we couldn't keep him, gave him up thinking it was for his best interest...it wasn't.
+Written October 11th, 2000 ©  on Oct 14 2001 09:45 AM PST   18  • 0  • 8

@@ -1,0 +1,10 @@
+---
+title: "The Wanderers"
+writer: "Charles Griffith"
+slug: "the-wanderers"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8161-The-Wanderers-by-Charles-Griffith"
+---
+
+Cold and still, a careless mist,the failing light of a winter's day;ancient shadows cast themselves across the pathas weary feet move forward.Cloaked in hooded attire they trudge onward,their gnarled staffs leading the way;straggling forth, their eyes darting,always marching on, always looking back.Through pine and fir, with dusk closing in,the haggard party, so veiled in doubtovertakes another shadowed turn,hoping for refuge, finding only the road.A lunar glow now shows the way,bringing strange shapes and stranger fears;a spirit once free, now wrapped in dreadstruggles through the wooded menace,always marching on, always looking back.The ears now hearken to a chirping chorusfrom distant lakes and still ponds;the cries from yesterday and beyond,like the vague meanderings of a dream.Travelers on a dreary night,no hope for lodging.a longing that grows,a singular notionnow a spoken thought;tired bodies now shudder to a halt.Then the LightPeering through, mirky questioning faces,a peasant feast wafting through dim hallways;a newness that swells up to meet themas they leave the darkness behind them.A merry crowd, old and youngfrolic and dance to protest the night.empty hearts now filled with lightlose their strangeness.Even empty stomachs are now filled,cold fingers warmed by the fire;mirth, merriment and alemingle with the smells of the kitchen labours.And now quiet slumber awaits,warm and snug;yet the shadow of Day still casts itself onto the night;uneasy visions grasp at our delightas the covers are pulled closer.And now morning comes, rested but still weary;broken dreams revive as well.once more, hooded eyes gaze upon the pathway;well rested, well fed,yet still tempted,always marching on, always looking back,Travelers on the Road
+Written October 14th, 2001 ©  on Oct 14 2001 02:03 PM PST   10  • 0
