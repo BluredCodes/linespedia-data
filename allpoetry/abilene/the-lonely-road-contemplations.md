@@ -1,0 +1,10 @@
+---
+title: "The Lonely Road (Contemplations)"
+writer: "Abilene"
+slug: "the-lonely-road-contemplations"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/18492-The-Lonely-Road--Contemplations--by-Abilene"
+---
+
+Well, I'm a confused jumble and I can hear my life ticking like a clock, or maybe a bomb...the problem is that I can't determine if it's either/or. I've watched years slide without comprehending anything concrete...what could it be that is making me feel so static? I'll tell you...the problem is already deep inside the past...already nestled deep inside a crevasse that's black as tar. 'Reasons for feelings, past actions, etc., and yet we can only be in the now.', something a good friend said once and that feels so tragic to me...the now is always forever reminding me of what I could've done back when I couldn't see the consequences of the now. Every thought, every wish, every waking moment I am put on a wall, and to stand against it is merely all I can do. But I love and send the message of love and with that in hand I act fearlessly on it...and lately the satisfaction from it has sparked something even more satisfying...comfort. Comfort and peace becomes legible as I look in the mirror at my reflection. Then tears...like rain and how it runs so neatly on my face...you know, like years. I'm always ready for tears...always willing to run from it all...always wanting to itch and scratch the pain off of these cheeks. I will know when the time is right to begin a new ceremony. I don't know now, in the now, in the flesh, and in the tick-tick-ticking of the menace clock...but I will soon enough. I know this much because if I let every minute brush off of me, then I will soon end with the fleeting minute. I will continue walking on the lonely road that leads away from the peace. A lonely road is what I walk upon day by day, and in the sun I scorch, but when I feel a breeze on my back and turn around, I see faces...and these faces call out...these faces want me.
+Written November 27th, 2001 ©  on Nov 27 2001 02:39 AM PST   10  • 0  • 12
