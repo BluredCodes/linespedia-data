@@ -1,0 +1,55 @@
+---
+title: "Chapter 7: Wryt Moon"
+writer: "Gemini2012"
+slug: "chapter-7-wryt-moon"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/15670-Chapter-7-Wryt-Moon-by-Gemini2012"
+---
+
+It was the Wryt moon,
+Begining of fall,
+And all through the mounth,
+I've dreamth of it all,
+The leaves were now falling,
+And I still in a dream,
+I loved my moon man,
+Like peaches adn cream,
+Although we haven't kissed,
+Or Hugged in anyway,
+I know that I loved him,
+Every single day,
+This night I ran through everything,
+And got there soon,
+And I say my moon man,
+Sitting under the moon,
+I sat down beside him,
+My hari was in a friz,
+And now I knew,
+He was gonna be a wiz, (Smarty pants)
+He looked at me,
+As if he knew I'd been thinking,
+HE smiled as if he thought,
+I was dreamy,
+I wanted to kiss him,
+And hold his so tight,
+All through the wryt moon,
+On this cold winters night,
+he started to laugh,
+as if he heard my thoughts,
+I sighed,
+Without a smile,
+I looked at him,
+For a very long while,
+He smiled at him,
+Without any words,
+He kissed my lips,
+Withouts lists of verbs,
+I stayed right there through,
+the nights mists,
+And layed on his shoulder,
+As if got colder,
+I smiled out of happiness,
+And sighed out of love,
+And I knew my moon man,
+was sent from above,
+Written November 16th, 2001 ©  on Nov 16 2001 01:12 AM PST, Melinda Hatfield   18  • 0  • 8
