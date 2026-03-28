@@ -1,0 +1,10 @@
+---
+title: "The Heart Pleads"
+writer: "tarnishedheart"
+slug: "the-heart-pleads"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/20088-The-Heart-Pleads-by-tarnishedheart"
+---
+
+Why in this timely hour do I feel ignored, do I feel as if you move so freely toward love that is so unfamiliar to you and I wait patiently for you darkened eyes to look upon mine as you do so many else's. Is it in those numbers that are cruelly assigned to each and every person from birth, those numbers to which you hypocritically base your beliefs on? Why am I so damned to never from something that is so out of my reach? What happened to the time that you used to look fondly upon me and whisper sweet things without saying nothing at all? I knew, I always did. You always reserved a spot for me, but did I let you down? That night you laid me down and filled my body with your love a miracle occurred. I stepped into unfamiliar territory the moment that I told you I love you, and I walked cautiously for fear of being shot, but I did then surrender to love and let you chain my heart to yours, maybe out of fear of loosing you, maybe out of fear of loving you. If there is truly a time for everything, when will my time for love come? Was it when you said hello or the first time you said I love you? The shadow of your love still stands beside me and I will love you until the grass stops growing, but tell me if it is vain, does my longing no longer satisfy you, or are you letting me suffer to see if I will conquer all and come out victorious, if I can do it without the armor or tendencies I once carried so proudly? Let my love not annoy you, let it fill you as yours did mine, let my love take you where I am standing, before you without guilt feelings, let me love you, break down your walls.
+Written December 3rd, 2001 ©  on Dec 03 2001 12:39 PM PST, Chauna   18  • 0  • 8

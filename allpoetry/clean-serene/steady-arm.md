@@ -1,0 +1,10 @@
+---
+title: "Steady Arm"
+writer: "Clean Serene"
+slug: "steady-arm"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/20120-Steady-Arm-by-Clean-Serene"
+---
+
+(I just want to give you guys a foreword on this one.  This poem was not meant to be a piece of art.  It's very personal.  This is real experience of mine so please read this with that in mind.  Thanks ~ROXY)STEADY ARMSo much depression running throughmy mind.There must be some relief that I can find.I walk along the street to see this man.Heroin and needles he holdsin his shaking hand.It should make me feel well,But only to find that I would inject hell.A pinch of pain in my steady arm,Flowing through my veins I feel no harm.A little more to ease the pain.This stuff is great when you havenothing to gain.In my own distorted dream I fall.I hear my God and his angels call.A little more in my steady arm,But now I begin to feel the harm.On my left and on my right,In my head I feel the fright.My beating heart begins to fail.I try to come up with no avail.My body dies,My mind goes numb.Jesus Christ what have I done?With near closed eyes and deafened ears,I see red lights flash and I feel the fears.I fall below a vacant bridge.Nobody can see my body upon this ridge.The sound of screeching wheels is now coming clear.Doctors are telling me that my death near.On my way to heaven or so I think,The lights flash fast,The angels blink?Holy shit, I just woke up in a roomwhite and clean.My body connected to giant machines.I see my mom,I see my dad.'Pull the plug, don't let time drag.Pull it now because we love our son,Pull it now because the time has come!'.I try screaming out but I have no luck.I shot it up and I took too much.They take me off life support.I never thought I'd die a death of this sort.I have no more human tears to cry.It was my mistake to take drugs and die.So it goes with many today,Heroin kills even those who pray.Never letting go I will say this decree:Heroin and it's brothers may never set you free.I know it's not a masterpiece.  I wrote this 2 years ago, I hope you enjoyed it.  ~ROXY
+Written December 3rd, 2001 ©  on Dec 03 2001 02:09 PM PST   18  • 0  • 1
