@@ -1,0 +1,38 @@
+---
+title: "lust"
+writer: "smiley"
+slug: "lust"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/24126-lust-by-smiley"
+---
+
+LUST
+
+KISSING
+GRABBING
+HOLDING
+FEELING
+FUCKING
+BANGING
+GROPING
+NIBBLING
+LICKING
+SUCKING
+SWEATING
+THE MOANS  AND GROANS
+TWO MINDS BECOME ONE
+TWO BODIES BECOME ONE
+A CONNECTION KNOWING THAT  IT IS A ONE TIME THING.
+THE AFTER THOUGHTS
+WET PANTIES
+WET DREAMS
+WHEN CAN THIS  HAPPEN AGAIN
+SNEAKING AROUND
+MOTELS  AND HOTELS
+CASH ONLY NO CARDS ALLOWED
+WHEN IT IS ALL OVER YOU HAVE TO FACE REALITY...
+
+
+
+YVONNE GRIFFINthis is what is hidden in the back of most minds but, only a few get a chance to do.
+Written December 19th, 2001 ©  on Dec 19 2001 09:25 AM PST, Yvonne J. Griffin   18  • 0  • 16
