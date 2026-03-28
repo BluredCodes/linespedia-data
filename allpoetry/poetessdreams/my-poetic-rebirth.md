@@ -1,0 +1,10 @@
+---
+title: "My Poetic Rebirth"
+writer: "poetessdreams"
+slug: "my-poetic-rebirth"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17566-My-Poetic-Rebirth-by-poetessdreams"
+---
+
+I am off to find myself  to open the unused voice that has been rusted and mangled for years in hiding  To master the art of lyrical beauty and sensation.   I am on a journey to fly away from my safety net  and to fly above the same, the ordinary, and usual  To become the weird, the mystical, and odd  With out feeling bad about being different. To look at myself with out seeing a monster  That no one likes....   And 'I don't care,'  'I don't care' I want it to be said freely and clearly As I patch up the lungs of me  that once had poison and mucus membraneI can breathe again,  breathe again  In and out   I am searching to repair the heart It needs badly repaired  The broken vessel needs restored  it has been trampled on  bumped and cut  it is leaking valuable liquids pieces of me floating away to a distant land beyond my heart  needs to be rubbed here and thereand suddenly  flash backs   I remember my first fight, and how  time clicked   The first time I had sex and he used my body,    and my 'ying-yang' became a tool of disposal,    rather that than to bore life  over and over again     I didn't love myself   Then finally I just shut up and my lack of words never bothered anybody  my closet stayed shut with all my skeletons  when I said I do My talent was Ssshed in waiting  And I hung in an illusion of time  I allowed others to investigate  And capitalize on me for gain  Appeasing a preconceived notion  Rather than allowing my true colors to shine through   I scheduled a white collar American job,  and starving artist went bye-bye. But little did I know that poetry works in its own way    And I craved it and wanted it  Because I needed it in my journey to become a woman   I can breathe again,  breathe again  In and out
+Written November 23rd, 2001 ©  on Nov 23 2001 06:35 AM PST   0  • 12

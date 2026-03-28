@@ -1,0 +1,10 @@
+---
+title: "Within these Walls(Collaboration with Sharmeka)"
+writer: "poetessdreams"
+slug: "within-these-wallscollaboration-with-sharmeka"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17570-Within-these-Walls-Collaboration-with-Sharmeka--by-poetessdreams"
+---
+
+It was quiet when he came to herEarly in the morning he would kiss herTucking the satin sheets inA frame sits on the corner of the night standTwo people pose in a picture, first datehowever, last night was not a symbol of lovebut a moment of devotionwhen he told her that she wasn’t prettyto ugly to be with himto fat to be his wife never did she take heedshe still loved him, always loved himhe always waited for moments were others weren’t thereto be frantic and jealousof her inter-beautysomething that he couldn't’t snatch from herswollen eyes stare shutwith in these wallsbroken jaws,fifty sticks going upand a 3:30 call to the cops  the terrified women in apartment belowstayed in her comfortable cozy environmentwhile the screams and cries went on that nightwhile he emotionally wounded her,pouring beer on her broken body,as her body left restless nestled in her tattered nigh-teetheir apartmentwas like a sound proof boxfamilies whisperedbefore heraround herbeneath her angels all around hersneering at her liesher blacken-blue eyes lumped and bulging over her skulland no one wanted to see what was so obviousor what was so clear on her facethe worst shame is the one she placed on herselfonce the proud ballerinaovercoming any obstaclenow so weak, so frailbarely holding uphow her man made her feel this waylying beside hercradling her bumps of, “I’m Sorry”She could see beyond the coat of foundationAround her heavy eyesHer over extended forgivenessHis flower and candy center-staged propsvanishing her vendettas and thoughimprisonedto be tortured forever in her mindwhich led him to be carriedaway in a paddy wagonin front of the town folks pointing and staring“It’s about time”then suddenly opening her doors againletting him paradeand walk on eggshellsnothing but dark rooms….within the walls of apartment 1A
+Written November 23rd, 2001 ©  on Nov 23 2001 06:44 AM PST   0  • 8

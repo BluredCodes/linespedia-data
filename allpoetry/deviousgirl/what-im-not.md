@@ -1,0 +1,10 @@
+---
+title: "What I'm Not"
+writer: "deviousgirl"
+slug: "what-im-not"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17518-What-Im-Not-by-deviousgirl"
+---
+
+You may call me weak, because I always run back to Him.You may call me stupid,for believing in something that'll never work out.You may call me foolish, because I give my love to an unresponsive person.You can call me anything that you wish!But don't you dare ever call me a coward!!I've been through too much, and have pulled so far.I've cried too many nights,and have been through things that seemed endless.I pour my heart into everything I do, even into you!Don't call me a coward, for I don't run and hide.Don't call me things that you don't know the meaning of.You told me that I wanted to die, you said that it would make me happy.You yelled at me to just end it all, and just cut far enough.I hate you!!!!You think that you know everything, but you don't.You think that I want to die, All I want is peace!I may be weak, and foolish, and possibly even stupid.But I will never be a coward.I fight my battles, maybe not like  you, but I manage to get through.I never run, for here I am!!I'll never be a coward, you don't know what that means!It hurts that you would say that,it's like you spit in my face.You show  ignorance to say such a thing.You ran, and I stayed, you hated and I loved.You didn't want to, and I gave it my all.I don't know what that makes me, but I'm surely not that coward that you speak of.Saying that shows, that you have no respect.I will always love Him, I will always run back, I will always believe,I will always give Him my heart.I won't and don't know how to run like you!Don't call me a coward, for it's not the right word to describe!
+Written November 23rd, 2001 ©  on Nov 23 2001 03:58 AM PST   18  • 0  • 10

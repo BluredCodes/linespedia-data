@@ -1,0 +1,10 @@
+---
+title: "That Summer"
+writer: "poetessdreams"
+slug: "that-summer"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17512-That-Summer-by-poetessdreams"
+---
+
+the july sticky sun hit our backsas the grass scratched our high thighthat summer i became a young womanmy cycle of life beganand it was thenthat i got my first training brait was tan with blue and yellow butterfliesthey were printed in little patternsand i wore it everyday,because i was a young lady theni had been waiting 1 year and 5 monthsfor my chest to grow with my bodymy best friend had a bra a boyfriend alreadyshe had been kissed before I wasand when she played hopscotchshe would tilt her shirt forall the neighborhood boys to seethis year it would be mei could now jump double-dutch and clench my breastas I “willed” in the airthe young girls would chant:“police ladypolice ladydo-yah        do-yah'cause here come the lady with african bootyshe could wiggle she could wobbleshe could do a spliti beat you five dollars she can't do this…”we would jump rope in the hot sunthat summer  i would brake away from my ponytailsevery little girl's trademarkand dye the front of my bangs blondeparting it on the side with a touch of curli was fresh and i knew itus girls would sit on steps painting our nails with yellows,reds, and greenseveryday we would play 7/11we wanted to be caught and mangledin 7 kisses and 11 pumpswe would venture fartheraway from our streetsinto the distant jungles of homewoodi was curious, thentoo curious for my own good, thenand i knew iti wanted second base, but third base was for bad girlsand i wasn't thatinstead I settled for the first time I had friends that  knocked on my door and called meit was the first summer the boys saw me and wanted …so I gave inthat summer
+Written November 23rd, 2001 ©  on Nov 23 2001 03:01 AM PST   0  • 10
