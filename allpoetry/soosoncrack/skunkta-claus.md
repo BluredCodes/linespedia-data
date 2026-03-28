@@ -1,0 +1,10 @@
+---
+title: "'Skunkta Claus'"
+writer: "soosoncrack"
+slug: "skunkta-claus"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/11780-Skunkta-Claus-by-soosoncrack"
+---
+
+It was late in Decembereverything had frozeAnd I had 'Jack Daniels' nipping at my noseAfter a few good linesand a bonghit or twoAs if struck by lightningmy awareness grewI love this time of yearthe yuletide songs and wishesI love the Christmas paper platesfor then there are no dishesSuddenly from the fireplaceI heard a great crashA big cloud followedpine log cinders and ashFrom the billowing cloudcame a big red furry formHe could have just knockedfor shelter from the stormOver his shoulder was a baga great big gunny sackHe quickly assured meI was not under attackI said,'Thats nice'and offered him a beerHe accepted and mumbledsomething about ReindeerSaid he was from up northso I asked him a questionI wondered if in his sackwas something for 'mental congestion'Well certainly there isit's what I do for a livingPeople ask me for thingsand I love the deliveringHe opened his bagof delightful tricksThere was 'Skunk Bud' and 'Coke'and even 'Thai Stick'Motorized Bongs and Laser Roach ClipsEven a straightjacketfor occasional bad tripsAmphetamines and Barbituratesand Mushrooms that were driedAll from the North Polevia 'Skunkta's Magic Carpet Ride'I offered another beerhe looked thirsty indeedHe returned my kindnesswith a big Bonghit of weedWe sat and chattedand drank and smokedThe higher we gotthe more we jokedI awoke surrealisticallywith a giant bonghit coughI searched for my visitorbut he had taken offI went back to ponderingstill in quite a funkEureka! Under the treea big 'Rooster Tail' of 'Skunk'So,Merry Christmasto you one and all'Buds' make a great giftso give me a calleak 1999
+Written October 31st, 2001 ©  on Oct 31 2001 09:25 AM PST   0  • 14

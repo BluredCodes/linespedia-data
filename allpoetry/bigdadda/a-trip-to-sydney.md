@@ -1,0 +1,10 @@
+---
+title: "A Trip to Sydney"
+writer: "BigDadda"
+slug: "a-trip-to-sydney"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/11827-A-Trip-to-Sydney-by-BigDadda"
+---
+
+Now I'll tell you a tale, about New South Wales That some would care not to remember. When country boys go, to see a strip show, And one nearly comes home dismembered!.It was down Sydney way, where some men are gay, And I don't just mean by their laughter. Where the clothes that they wear, might lead you to despair, Our young hero had his disaster.They did Sydney Town, from Center Point down To a place that is know as 'the Rocks', Where they drank lots of beer, and were in good cheer When they hailed a cab for 'The Cross'.Well 'The Cross' is a place, where young men in haste, Can get what they ardently desire. Where the Strip Shows the go, and everybody knows That women abound for hire.Now Mike was a lad, and a girl he'd not had Up North he was known as a virgin. And Larry and Jim thought they could help him, They knew he just needed some urging.The Strip show was seedy, their eyes became beady, As they followed the bump and the grind. Mike fell in love with one little dove, And Larry said now is the time.So they lead him upstairs, to a room full of chairs While they went to barter the price. When they came back, Larry gave him a slap, And said 'Now for the time of your life'.Our hero was keen, as he pulled down his jeans His manhood about to be tested. But when the Dove came in and removed her wig He wondered if he was doing the best thing.Next came the top, and there wasn't a flop In fact there was nothing to be seen. And the hair on the chest, put the matter to rest He was going to bed with a Queen.Well up come the zipper, but he was a might quicker Than a man in that state should have been. The Dove said 'Oh dear, didn't you know I was queer?' As Mike ran out with a scream.A long time has pasted, since Mike was in Sydney last, But he remembers in well in his dreams. And when asked to relate, the things that he hates It always brass zippered jeans and Queens.
+Written October 31st, 2001 ©  on Oct 31 2001 01:17 PM PST   0  • 14

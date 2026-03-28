@@ -1,0 +1,10 @@
+---
+title: "Local Woman 105"
+writer: "agora"
+slug: "local-woman-105"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/11697-Local-Woman-105-by-agora"
+---
+
+LOCAL WOMAN IS 105:BRANDY AND MARMALADE THE SECRETsupermarket flyer editionPefferlaw BeaconJuly 20 1999She cameshe came here last weekshe came last week from the newspaperthe one that has the lighthouse on the front pagethe nice girl from the local Pefferlaw newspaper andasked me how I lived to be a hundred and five and I told herDearie I haven’t the faintest idea I just get up in the morning andthe world is still here the silly world I stopped taking seriously aboutsixty years ago when my first husband died and left me a seven thousanddollar debt and a bundle of love letters he wrote to his second cousin Mabel inPort Bolster because you see the two of them were making hanky panky behind my back and I married the second fellow because he promised to pay off the debt from thefirst fellow but he was a little faint pale man so I didn’t take the world for more than it was worth after that, I just got out of bed every single morning and looked around and saidMy my is all of this still here? My my don’t all of you have anything better to do thankeep living like I keep living?but the nice girl from the paperseemed so disappointed that I felt I had to tell her something for a story so I saidMarmalade and Brandy that’s my secret Marmalade and Brandy every nightjust before bed time and she perked right up and wrote it down everyword of it but I didn’t tell her that I took the brandy to dull the worldand ate the marmalade on bread in hope that I just might chokeon it in the middle of the night and die and make all thissilliness disappear but she wouldn’t have been ableto put that in her newspaper with the lighthouseon the front page so I just smiled andsaid when you’re my age Dearieyou will know yes you will know what to do.
+Written October 31st, 2001 ©  on Oct 31 2001 02:21 AM PST   0  • 10

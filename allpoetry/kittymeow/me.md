@@ -1,0 +1,24 @@
+---
+title: "me"
+writer: "kittymeow"
+slug: "me"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/11784-me-by-kittymeow"
+---
+
+PLAYFUL LIKE A KITTEN
+THATS ME
+HARD LIKE A ROCK
+THATS ME
+SOFT LIKE A FEATHER
+THATS ME
+SAD LIKE A LOST CHILD
+THATS ME
+HAPPY LIKE A MADMAN
+THATS ME
+EXPRESSIVE LIKE AN ARTIST
+THATS ME
+DRUNK ON LIFE AND FULL TO THE BRIM
+THATS ME
+THAT IS ME, IS ME , IS ME
+Written October 31st, 2001 ©  on Oct 31 2001 10:04 AM PST   0  • 9
