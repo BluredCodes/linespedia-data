@@ -1,0 +1,10 @@
+---
+title: "The Greatest Of These Is Love"
+writer: "b za"
+slug: "the-greatest-of-these-is-love"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10523-The-Greatest-Of-These-Is-Love-by-b-za"
+---
+
+Though I speak with the tongues of men and of angels, but have not love, I have become sounding brass or a tinkling cymbal. And though I have prophecies, and understand all mysteries and all knowledge; and though I have faith, so so as to move mountains, and have not love, I am nothing. And though I give out all my goods to feed the poor, and though I deliver my body to be burned, and have not love, I am profited nothing. Love has patience, is kind; love is not envious, is not vain, is not puffed up; does not behave indecently, does not seek her own, is not easily provoked, thinks no evil. Love does not rejoice in unrighteousness, but rejoices in the truth, quietly covers all things, believes all things, hopes all things, endures all things. Love never fails. But if there are prophecies, they be abolished; if tongues, they shall cease; if knowledge, it will be abolished. For we know in part and we prophesy in part. But when the perfect thing comes, then that which is in part will be caused to cease. When I was an infant, I spoke as an infant, I thought as an infant, I reasoned as an infant. But when I became a man, I did away with the things of an infant. For now we see in a mirror, dimly, but then face to face. Now I know in part, but then I shall fully know even as I am fully known. And now faith, hope, love, these three remain; but the greatest of these is love. 1 Corinthians 13:1-13Yes this is from the Bible. Its a great passage about love. God knows the most about love, so I took this straight out of his book.
+Written October 26th, 2001 ©  on Oct 26 2001 01:42 AM PST   0  • 8

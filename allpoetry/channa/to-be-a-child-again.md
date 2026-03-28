@@ -1,0 +1,10 @@
+---
+title: "To be a child again."
+writer: "Channa"
+slug: "to-be-a-child-again"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10437-To-be-a-child-again.-by-Channa"
+---
+
+I want to be a child againFrom the coastal plains of FranceLaughing freely, feeling no painknowing of no man's indifferenceNever worrying about tomorrownot knowing heartbreak sorrowsTo be a child again..Staying out, t'ill dark sets indrinking raindrops and having funrunning freely in the sunwanting to touch a stardidn't really care how farTo be a child again..This memory will always remainbare feet grazing velvety grassthe pond acting as my looking glassclimbing to the tallest treemy little dog, looking out for meTo be a child againBees around me, buzzing with disdainpicking and smelling wild flowersholding in my hand, a rose forevertrusting with a child like trustno questioning, that's a must!To be a chils againpetal so soft like satinaround my auburn hair I bind,trying to sneak up on the windthe pure look of innocenceno masquerade, no other pretenseTo be a child again..A ready smile, and playful grinBig brown eyes deeply staringwith no malice, just dreamingI want to be that little girladorned with long red curlsTo be a child again..with love to give everyoneknowing I was the onewho was loved so dearlyby my foster familyshe's been rejected, been abusedbeen tattered, she's been usedI still have that little child..little bit tamed, little bit wildand once in a while she'll appearwhen I am faced with my fearher innocence gives me the strengthher clear giggle quench the stenchof the hurts that has been doneand thru the years, she's been the onewho has stayed close beside mewhen I was lost and lonely.She's the reflection of myselfthat's been put on the shelffor you see, this little girlstill wears her long red curlsshe is there to reminds meno matter what life's throws at mesorrows and trouble won't lastsoon, they'll belongs to history's past.
+Written October 25th, 2001 ©  on Oct 25 2001 03:46 PM PST   18  • 0  • 12
