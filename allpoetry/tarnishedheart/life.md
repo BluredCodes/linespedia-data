@@ -1,0 +1,16 @@
+---
+title: "Life"
+writer: "tarnishedheart"
+slug: "life"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/13285-Life-by-tarnishedheart"
+---
+
+A confused father wonders why his teenage daughter doesn't love him anymore. She knows someone has taken her place and daddy's not the same. All he'll ever have left of her is an old grade school picture he got for fathers day. All he can do is hope that his image of daddy's littler girl will be okay.
+ A husband and a wife say goodbye for the last time knowing that when they said "i do" they meant "I'll try". Never again will he come home to see a candlelit dinner waiting for him and she regretfully will never again sleep at the side of her husband. And when it's over they realize they can't live without eachother but by then it's to late.
+ A teenage mother stays home from school so she can't be said to be a bad mother, but everybodys still trying to pull her down. She feels like all the pressures of the world are on her shoulders. She knows deep down inside that what she did was a mistake but it's something she'll have to live with for the rest of her life.
+ A torn mother looks down at her son in the casket thinking about how she never got to say goodbye. She walks away with nothing left but memories. She knows she'll wake up every morning only to walk into her sons room to see an empty bed. She's also wondering how she'll put a stop to the neverending flow of tears as if her eyes were a everflowing waterfall.
+ Two young siblings stand on a top step looking down in tears to see daddy hurting mommy. They can't understand what mommy did that was so wrong. When it's over they find themselves crying unconrolably, they ask mommy what daddy was doing but all she could say was "go to bed". Then they wonder where daddy went and why he doesn't love them anymore. They grow up the rest of their lives thinking it was their fault just because mommy couldn't say "he was drunk" instead of "go to bed".
+ These things happen every day and are only the truth and if it takes a 15 yr old to stand up and speak then that only showes how behind this society is. There are people getting more time for robbery than for rape, you can always get over a few stolen things but never be ale to get over what someone has did to you that has scarred you for life, and it's pretty bad when someone can plead insanity for murder and instead of jail they go to therapy.
+ Until someone can open their eyes and see what is going on then there will never be any true justice for anyone. People need to stop putting people down and start helping them, stop accusing people and sit and talk to them. That's teh problem, people don't want to sit and talk things out, they solve thier problems with guns, gangs, and knives then people automatically think their bad without getting a chance to know them. If this is what the future generations have to look foward to then I think I speak for everyone when I say I don't want any part of it.I wrote this poem about 5 yrs ago when i was 15 and i wanted to put it on this site as kind of a reflection. it seems nothing really changed, and look at the situation we are in now, kinda sad!
+Written November 7th, 2001 ©  on Nov 07 2001 02:49 AM PST, Chauna   0  • 9
