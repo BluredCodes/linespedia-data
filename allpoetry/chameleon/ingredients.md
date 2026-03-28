@@ -1,0 +1,10 @@
+---
+title: "Ingredients"
+writer: "Chameleon"
+slug: "ingredients"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/19854-Ingredients-by-Chameleon"
+---
+
+I don't know what to write, or if I can?But it's ok, I'm just scared of the rat.And only now, as the dust settles on my room,Only now, can I hear what's going on BEHINDChick.It's Joe, man.Joe, or the contrary.The, like it is the.What?Maybe I'll read this tomorrow and laugh.At least it'll make sense then.I couldn't imagine shooting Nazis here!Not while Miles is playing anyway.I suppose I could write till moonrise. However, it is only four.You can figure the rest out.You're smart.Just like James said.James the Rabbit.I would create a masterpiece,granted I could buy the seeds.But then the scenery changed.Wy?Because it should. Says I.Jim. Ji. J. j. -. A ^...degredation-evolution...cycle or synonyms.Beep.Bop.Weedo Weedoo.If a grapefruit read this,why would you ask?Don't you trust me.You don't?I'd be a genius too, if I knew what they were thinking...-What if I change this?Then it would look like what.Ever. For...lie. lie lie lie.Three---ONE blind mouse.The eyes.It's there,THERE!I'm cold cereal - broken integration.He was smart - not lucid however.So Beware.I've seen Bill Cosby dance.stanke.So, It's TIME to...The scenery changed.But it still looked like                      A Desert to               - MeThat's right.Ok. Michael IS.What if he wasn't?Po-tee-weet?That excites and scares me more than any other rat.What kills me is that I'm not an artist?That nice ass, after all,why shouldn't sex besecluded?Bob will tell you.And the hams.Wilbur should know.no.I play, and Shakespeareis famous.The Euro?I'm disturbed.I would like to announcethat I am NOT writing.That would be too bitter, much.I suppose this was one way to bring out the stars.Apparently city stars sleep alot.It's a shame...smogwould make them big macs.Hunger...HAVE A NIGHT.
+Written December 2nd, 2001 ©  on Dec 02 2001 02:26 PM PST   10  • 0
