@@ -1,0 +1,10 @@
+---
+title: "A Child's War.. (Story of Baroukh-Raoul Bentitou during WW2) Part 1"
+writer: "DeathIsNotTheEnd"
+slug: "a-childs-war-story-of-baroukh-raoul-bentitou-during-ww2-part-1"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9067-A-Childs-War..--Story-of-Baroukh-Raoul-Bentitou-during-WW2--Part--by-DeathIsNotTheEnd"
+---
+
+*I suppose you could call this a story but basically it is a fictional diary of a most non-fictional child who lives during the holocaust.  It is divided into about 20-30 parts and will continue or a period of time... thank you.Part One.December 1, 1940 (age 9)I once knew a very proud star whose 5 points never ceased to pierce the hatred that divided our countries but things have been changing.  All around me I see fright and fear.  Those who didn't believe are the ones who will suffer the most, and those who know not of will suffer even more then the most.  It seems the world has split apart into many millions of pieces, shattering beneath our feet and dissapearing into oblivion before our sensitive eyes.  As I walk through our neighborhood there is no longer playing on the small streets or kids playing hide and go seek in the playful alley behind our small apartment.  I know that now the world will never be the same, our lives will never be the same.  We are only as strong as out weakest link and a torn heart is only as deep as the scar that is left behind, forever a tattoo of the pain and the sorrow we will encounter in our lives ahead.  I only wish that there is hope because now I realize hope is no longer a simple escape from reality.... reality itself is based upon it and reality has just gained much weight.*** tell me what you think please and if i should continue with part 2.. thank you.
+Written October 18th, 2001 ©  on Oct 18 2001 02:57 PM PST   0  • 1

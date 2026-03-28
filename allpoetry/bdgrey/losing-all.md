@@ -1,0 +1,10 @@
+---
+title: "Losing All"
+writer: "bdgrey"
+slug: "losing-all"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9089-Losing-All-by-bdgrey"
+---
+
+Two lights loom in the distance,on this one-way road.I look at you with confusion.You respond in similar fashion.The lights move closer,and in rapid progression.Everything becomes bright now,and silence is replaced bythe blaring of a horn.'I love you,''I love you,'We both whisper unsure.Then suddenly the lightbecomes darkness,and the horn now shattering glass.We are spun violently,and flipped twice over.I look at you through the darkness,and see your limp body.I call your name without effect.And then....nothing.-Blackout-They told me you died on impact.The driver, drunk, lived with ease.You have been taken from me,You have been taken before your time.My life will never be complete.Your's, never given a chance.Our baby's, never given a chance.-Tears-I stand in shock with my head down.Your face so pale within the coffin.Why are you leaving me?Why did this happen?!I shed uncontrollable tears.This will be the last timeI ever see your face.I bend down to kiss your lips one final time.You are so cold now.I remember when you used to be warm.I remember when you used to kiss back.Those days are gone now,replaced by days of emptiness.I step back for one final look.GOD! you are beautiful.Please Rest In Peace.I will see you again.You are lowered into the earth,along with Erin,never to be seen again.I leap forwardreaching for your hand.I fall just short,within the grasp of my friends.They hold me tight,just the way you used to.-Hope is Gone-I awake in a cold sweat, and look beside me.Thank God it is only a dream.I haven't lost what I hold so dear.For I have nothing to lose.I never did.Is it better to have loved and lost,or to have pushed love away?Love always. Will you have people surrounding your coffin?
+Written October 18th, 2001 ©  on Oct 18 2001 04:26 PM PST   0  • 1

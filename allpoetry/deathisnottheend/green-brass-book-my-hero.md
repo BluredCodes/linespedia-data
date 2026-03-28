@@ -1,0 +1,10 @@
+---
+title: "Green Brass Book (My Hero)"
+writer: "DeathIsNotTheEnd"
+slug: "green-brass-book-my-hero"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8898-Green-Brass-Book--My-Hero--by-DeathIsNotTheEnd"
+---
+
+You sit in the corner,Occasionally peeking out from behind the green brass book you hold.Nobody passing by can see through the dark blue bags under your eyes,Or the crimson stains on the undersleeve of your shirt,But I know what you've been doing,And you can't hide from what I see.Your pale green eyes are deprived from simple pleasures,As you walk down the leaf cacked road to school everyday.There is nobody around to see you,But I know you are there,Crying inside as you walk,Clutching your opposite arms and shivering in the early autumn frost.You know I'm out there somewhere.You hide the pain from all those who you walk by,Crowding yourself with hate and repetition.I know what you do every sleepless night long,And though you'd like to think I know nothing about you,I can see through those pale green eyes and green brass book.Your lies are only as truthful as the life you are living,Yet through it all you crack a smile and put on a happy face,And through it all you laugh for me,Because you know that's what I need.All I wanted to say was thank you for being my hero when all you can read... is that green brass book before you.I'm not quite sure how this will go... it doesn't really have an evident pattern or rhythm.. I just wrote it out of the bottom of my heart for the best friend I could have ever asked for.  It has a lot of metaphoric meaning for anyone who doesn't understand the meaning of the green eyes and green brass book.. it mostly stands for jealousy, being green, and standing out in a world of hard covers and paper... get it now?  Tell me what you think...
+Written October 17th, 2001 ©  on Oct 17 2001 03:32 PM PST   18  • 0  • 1

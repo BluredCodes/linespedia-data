@@ -1,0 +1,10 @@
+---
+title: "Hug me,hold me,kiss me"
+writer: "thespin"
+slug: "hug-mehold-mekiss-me"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8935-Hug-me-hold-me-kiss-me-by-thespin"
+---
+
+Pictures of family outings-baby-school chums-mother-father-sister-the prom-her first kiss.Memories pinned to a cork-board.Paper photos long forgotten and hidden in a draw.Now viewed and remembered.'Look. How old was she here? Look, that's her grandparents at her christening. When was that taken? I was twenty then. She was such a cute baby. Such a smart girl.'Tears filling the room,overflowing it, drowning in it.Tears screaming out for the why of it.The young and the old lined up like ticket holders for some popular Broadway show.'Isn't it awful? What happened? Does anyone know? Did anyone see it coming?She was so young? Fourteen. She had her whole life in front of her. Why couldn't she had waited? Such a waste. I could see if she came from a lousy family, but the girl had everything.''Hug me,hold me,squeeze me,kiss me. Help to forget.''I need an anchor in this out-of-obit world.''I need a rock. Something to hold on to forever. Forever?''Hug me,hold me,squeeze me,kiss me.PLEASE!''That could have been me, was me,once.'Roses,carnations,forget-me-nots,a rainbow of colors.Aromas and beauty to cover the heartache of death.'Did she get my flowers? Who sent that lawn ornament? She must have been well liked there are so many flowers. Such a pretty girl.'Mother standing. Shaking hands. Over and over.Comforting children that could have been her own.Giving birth over and over.She is holding but not for much longer.'Husband. Hold me,kiss me,touch me. I need you. I need my rock. I am crumbling. My legs are giving out.'Husband. Strong. Men are not supposed to cry.Holding back the tears.'Wife. I feel dizzy. I just want to lie down beside my daughter.''I need her to hold me,kiss me, squeeze me.''I need her to answer me. I need to know. WHY DID YOU HANG YOURSELF? WHY?'
+Written October 18th, 2001 ©  on Oct 18 2001 12:34 AM PST   0  • 1

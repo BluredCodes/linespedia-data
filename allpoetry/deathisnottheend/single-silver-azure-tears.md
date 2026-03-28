@@ -1,0 +1,10 @@
+---
+title: "Single Silver, Azure Tears"
+writer: "DeathIsNotTheEnd"
+slug: "single-silver-azure-tears"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8866-Single-Silver--Azure-Tears-by-DeathIsNotTheEnd"
+---
+
+The damp, gelid grass rocks endlessly as shooting stars guide their sway.The moon's aura foreshadows the glittering  of the night sky,And as your breath slowly condensates and rises towards a forgotten heaven,A single silver, azure tear cascades down an already fragile cheek,Ricocheting in to many pieces off the damp ground and then seeping deeper into your heart.You remember the times when you were little,Swinging back and forth in the soothing autumn air,As many leaves effortlessly; calmly glide towards a long awated ground,Where they are to endlessly rest until they shatter and dissolve in the frigid winter air,Just like the person you once remember being.You remember the long, carmel colored fields of wheat and grain,As you drove past the many crowdless farms in your escape from the pain,The pain that slices your wrist every time you open a door, or remember those many lonely nights.Still cold, shivering; confused and distraught you close your polar blue eyes,And slowly begin to cry yourself to a light, oblivious sleep.As you sleep you dream,And as you dream you only relive the life you've hid from all this time,The life you wish you never knew,Never had to wake up to relive again.You run from the truth you know sooner or later you will have to fight,And win,Or die trying to defeat the inscrutable pain.Your own incongruous mind can only take you so far,Until you must do the rest.Sooner or later you will have to overcome your craven heart,And take a look away from the mirror,So you can take a look at what has been right behind you the whole time.Take a look away from the mirror,And you will realize,You are I,And we together...Will no longer cry those single silver, azure tears.
+Written October 17th, 2001 ©  on Oct 17 2001 12:49 PM PST   18  • 0  • 1
