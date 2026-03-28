@@ -1,0 +1,16 @@
+---
+title: "Billy Bob The Monkey"
+writer: "shorty"
+slug: "billy-bob-the-monkey"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/20840-Billy-Bob-The-Monkey-by-shorty"
+---
+
+One the edge of the bridge was a little brown and white cottage.  Inside, lived a little monkey named Billy Bob.He was a sweet little monkey, never bothering anyone.  Because he lived at the edge of the bridge, there weren't many people around.  He was usually alone with no one to talk to, unless you count his pet cockroach. He was very fond of his pet, and he cherished him dear to his heart.  They were the best of friends and did everything together. One day, someone new moved in!  His name was Swamp Thing, and lived in the swamp beneath the bridge, hence his name.  He was the only civilized person around Billy Bob's house and they immediately became close friends, best friends infact.They did everything together.  They played chess, talked, did puzzles, everything!  They had a blast!Nevertheless, they didn't pay much attention to Cockroach, for he couldn't play chess, talk, or do puzzles.  Slowly but surely, Billy Bobnot only didn't play with Cockroach, but stopped doing necessary things for him.  He forgot to feel him and forgot to do everything and anything for him.  One sunny summer day, Billy Bob came home from the pool with Swamp Thing and then, once again, remembered his failure to tend to Cockroach.  As usual, he'd run in apologizing continuously expecting Cockroach to be sitting there upset.  But, eventually, he'd always smother him up and everything would be alright. He gathered food, water, and some treats and placed it next to his pet.  "I'm so sorry, Cockroach!"  There was no movement. Billy Bob gave Cockroach a little push and he still didn't move.  No reply. No movement. Billy Bob started to get nervous.  After fully examining his poor, defenseless little pet, he came to the conclusion that he was dead.  Billy Bob bursted into tears of pain and agony.  "How can this be?  He can't be gone!  Oh why did I ignore him?  Why didn't I include him with Swamp Thing and me?  Why?  Why?  Why?"  He walked into the kitchen and found the computer left on.  There was a letter!  He wasn't sure how, but it was from Cockroach!  It read.......
+
+ 
+Billy Bob,
+      You've always been a true friend to me.  I loved you with all my heart.  We were best friends!  If you're reading this, I'm probably gone now.  Sadly you've been ignoring me lately.  You dropped an old friend like an old shoe for a new one!  You turned in the old quarter for a 2001 version!  I hope Swamp Thing can give you all the love and confort I did and what I couldn't give you.  Don't forget me, I'll never forget you.
+         Love always,
+           CockroachIt was a report for my creative writing class.....The people stand for real people and what I wanted to happen to them in a way I guess....Not literally, but it was a happy yet sad moment and I had to write a poem
+Written December 6th, 2001 ©  on Dec 06 2001 09:37 AM PST   0  • 14
