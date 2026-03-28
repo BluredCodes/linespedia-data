@@ -1,0 +1,10 @@
+---
+title: "Childhood lost"
+writer: "kaz4sim"
+slug: "childhood-lost"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9446-Childhood-lost-by-kaz4sim"
+---
+
+People around with normal faces,Going about their daily places.Family life.. they have that tooThey seem quite normal to me and youBut behind the mask, lurks doom and dangerThey become..The 'Dreaded Stranger'Stalking kids of all shapes and sizesWith their clever, Perverted disguisesKids are trusting, Pure and TrueThey believe in what 'Adults' doAnd here is where begins the danger..From that sick, Perverted strangerLures from sweets, Puppies tooTrips and outings.. its all untrueFor behind it all lurks evil and liesAs they take the kids with trusting eyesWhat happens then...we've heard it allExcept for the noise of the childs callAs it desperately screams for safety and calmFor their mothers arms to stop the harmPeverted people roaming freePraying on our kids safetyOnce they're taken.. the childhoods lostNo going back!... What a cost!Every child has a right to beGrowing up in pure safetyBut these people have marred our worldTaken away our boys and girls'This has to stop!' Mothers screamAnother child is found in a shallow streamThese people have to be locked awayNever to see the light of dayThe Judicial system has crushed our soulThese perverts are let out on 'Parole''They deserve a chance' the Big Wigs say..But they're not released where THEIR KIDS PLAY!!The Country failing with our babiesWe dont want Why's , or If's or Maybe'sWe want a world where our kids can playAnd live to see another dayMy kids are kept inside all dayIt's my only option... the only wayTo protect my kids from all the horrorTo let them see a new tomorrowI dont know who's lurking behind each doorOr walking around my Neighbourhood floorSo my kids are prisoners.. gone is their dreamBut at least i can hear if my kids scream!
+Written October 21st, 2001 ©  on Oct 20 2001 07:49 PM PST   10  • 0  • 1

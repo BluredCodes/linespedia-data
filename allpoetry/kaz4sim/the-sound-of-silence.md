@@ -1,0 +1,10 @@
+---
+title: "The Sound of Silence"
+writer: "kaz4sim"
+slug: "the-sound-of-silence"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9444-The-Sound-of-Silence-by-kaz4sim"
+---
+
+Ssshh.. can you hear it?Strain your ears to the soundThe sweet sound of silenceWhen no-ones aroundChildren are sleepingIt’s a quarter to seven15 minutes leftOf my silent heavenSoon we’ll have noiseTo compare with a riotAs the kids all get upAnd scare off the quietThese precious momentsOf a silence so blessedShould be bottled and givenTo mums who are stressedSoon dishes will clatterMilk will be spiltClothes strewn around“Go pick up your quilt!”Then it’s the lunch boxesWith good things to eatSandwiches, yoghurtAnd a lil chocolate treat“Mum, have you seenMy red spelling book?”“Do I use it I say?”OOH then comes the look“Cant find my Games kitOr my other shoe”Of course it’s all your faultIt’s all down to youSoon comes the timeThey’re ready to goWith a hug and a kissThey go off in towThey cheerily waveAs they go on their wayI’m left with the messThey create every dayAt the end of their dayThey return full fun“Mum we had a school raceAnd guess what? I won”Bags dumped on countersCoats not reaching the hooks“Whats for tea mum?”Oh no here’s that look!They leave me to doWhat all mums do bestSorting out kidsNo having a restThe dishes and clutterAre picked up and doneWhile all the kidsAre having the funThen its homework and bathingJust time for a snackNow off you all goTime to hit the sack!Can we stay up mum?Please they all sayWe’ll be ever so goodWe wont argue, just playBut my dear little onesMy day isn’t finishedI can’t go to bed Till my chores have diminishedSo off now you goLet slumber surroundAnd let me enjoyMy sweet silent soundNow times this by 3And you can see why I treasureMy lil’ golden momentsOf pure silent pleasure
+Written October 21st, 2001 ©  on Oct 20 2001 07:45 PM PST   18  • 0  • 10
