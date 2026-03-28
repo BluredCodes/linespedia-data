@@ -1,0 +1,10 @@
+---
+title: "I Like You Sometimes"
+writer: "FallinTears"
+slug: "i-like-you-sometimes"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17913-I-Like-You-Sometimes-by-FallinTears"
+---
+
+I like you sometimesYes that’s rightSometimes I think I might love youAnd love is very dear to meI’ve never loved anyone beforeI wonder if you are special enough to have mineSometimes I can’t imagine what life would be like without youWhen you hold me in your arms and whisper in my earWhen you make others jealous We people say we look so cute to togetherAnd ask if were going outWhen you care about me, and you probe me to talk to youYou know when things are bothering me, and even if I won’t talk about themYou’d listen if I chose to do soYou know when I’m lyingYou make me smile just when I see youI shiver with your touchYou make me never want to run awayWhen you hold me in your arms and whisper in my earYou make me happy to be myselfWhen you are just yourself and nothing else in the presence of othersThat’s when I like youI like you sometimesYes that’s rightSometimes I think I might hate youAnd hate is very strong to meI’ve never really hated anyone beforeI’ve only disliked them a little bitSometimes I can’t imagine why I ever “liked you”When you talk that way you do, and you make those smart commentsWhen you make me feel stupidWhen people give us funny looksAnd ask what’s wrong with himWhen you don’t ask me what’s wrongWhen you know there really is something, and you don’t feel like knowingYou’d listen… if I made youYou know when I’m bitchy to youYou make me sneer with your stupidityI shiver when I wonder what I was thinkingYou make me want to run away, for you were my last hopeWhen you talk that way you do, and you make those smart commentsYou make me madWhen you are just acting stupid and you think you’re THE shitThat’s when I hate youThat's how it is with everyone I know. Everyone but Dana Cheri'. Dana you are the only one who I like all the time. I love you so much... don't ever leave me!
+Written November 25th, 2001 ©  on Nov 24 2001 03:29 PM PST   18  • 0  • 1
