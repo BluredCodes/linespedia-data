@@ -1,0 +1,10 @@
+---
+title: "Murder at Sleepy Hollow"
+writer: "The Golden Pen"
+slug: "murder-at-sleepy-hollow"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10861-Murder-at-Sleepy-Hollow-by-The-Golden-Pen"
+---
+
+It was on a cold nightIn late OctoberBy the pale moonlightNear the old Northern Church you shall rememberThere was an old, old, archaic cemeteryBy the creepy town of Sleepy Hallow...  Old man Steve,The old caretaker...On All Hallows Eve...By the creepy embers...Would wander endlesslyThroughout the icy graveyard...mysteriously;  The moon was full and oh, so eerie!The wind howled like a wounded animalThe terrain was cold and oh, so scary!  On this chilly, Eve in late OctoberCome midnight you can feel a chill run down your spineAnd on some premonition you can gatherA certain supernatural phenomena just about to occur!About half past midnight Old man SteveWhen the nocturnal sun shone brightly upon the ghostly skyOn the Eveof October thirty-one...Steve, wandered alone and wearyBy the light of candlelight Through the tombstoneshe walked byHeaven knows what business brought him there!But as i spied upon him behind the ChurchI could see a trail of bloody bones oh, too clear!I could see, keenly as a raven upon its' perchThat crazy geezer digging feverishly awayAll night long he dug that holeWhile his eyes lay open like a dead man's eyesHis mind's eye replayed his evil crimeAs the church bell echoed loudly its' accusing chime!His whole life flashed before him as it revealed the awful deed that he did sow...Then he let out a ghastly cryAs the sickle swung to and froAnd to this day and this very hourNo body knows for certain...What became of the old geezer...and I, in utter shock and surpriseWas struck blind upon witnessing this terrifying crime!Now, nobody can ever know the fateOf Old man Steve, the old caretaker...Nor solve the Murder at Sleepy HallowAnd I in my madness still playthe whole thing over and over in my head...Wishing, O, wishing, that it were Iwhom Mr. Reaper took instead!!!  Mary Gonzalez © Copyright, 1999
+Written October 27th, 1999 ©  on Oct 27 2001 10:06 AM PST, Mary Aris   0  • 10
