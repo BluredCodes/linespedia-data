@@ -1,0 +1,10 @@
+---
+title: "910 Denver Street"
+writer: "Stacey"
+slug: "910-denver-street"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10644-910-Denver-Street-by-Stacey"
+---
+
+'Poor house, that keep'st thyself.'         - William Shakespeare, Cymbeline, Act III, Scene ivShe is a lonesome old woman.Creaking and complaining when crossed;clothed in a dull white frock,a blue dress,and a slip of black beneath.Her facade is timeworn,wrinkled, careworn,ancient to the imaginative mind;weathered face paint smudged, and smeared, and cracked.Her floors and corners bulge with moisturelike ankles will after years of supporting much weight;her tired hands still quick to punish idle curiosity,springs wound tight to keep the bugs out.A slip of black beneaththe cold, hard, concrete-encasedbasement of heris the place where she hides secrets, sweaters,his old treasures.Her encasement rarely sees daybut through narrow cracksin her shadowy, ground-leveltempered glass; anduntold stories lurk furtivelyin the slip of coal black beneath.Idle curiosity questions happenings and keepings here;Imaginative youth wonders births, lives, and deaths;asking answers of elusive sleep whilebunked above the black slipin her own blue dress.The weathered, guardian lilac treeswhisper 'don't be frightened' to the evening breeze,but the words fail to reach inquisitive ears;drowned by the distant trains wailingand the lonesome old womancreaking and complainingabout the slip of coal black beneath.1998, This is about the 4th version of this poem I've written since 1998 or so. It refers to the old house my grandparents lived in when I was a child. I was scared S***LESS of that house and the basement and the coal room. To this day as much as I loved my grandparents, at 30 years old I still have nightmares about the basement of that house.
+Written October 26th, 2001 ©  on Oct 26 2001 10:10 AM PST   18  • 0  • 10

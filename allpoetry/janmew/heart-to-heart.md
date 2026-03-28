@@ -1,0 +1,10 @@
+---
+title: "Heart To Heart"
+writer: "janmew"
+slug: "heart-to-heart"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10583-Heart-To-Heart-by-janmew"
+---
+
+Somewhere far away he sits, rubs his brow, sets down his pen and sighs, closes his eyes and lets his love for her take a moment of his time. In his mind's eye, he closely holds her, brushes the hair upon her head and gently lets his lips touch hers, then returns to his work refreshed. Somewhere far from there she works, rushing through her day, focused on her task but like a flash within her being her step falters as she walks; his firm embrace she feels around her, there is a tingling on her skin. She brings her fingers to her lips, then with a smile she carries on. Somewhere, early morning breaks, hours before she ever planned to rise. She feels a warmth deep in her heart and a happiness inside, and lets his love wash through her tenderly. Because far away he's wakened and his thoughts are filled with her, his heart and hers comunicate beyond any logic of the mind. Somewhere out there his face is grim, stresses on the job, or a relative is ill, and he wonders how this day will end. Far away it grips her, her breath catches in her throat, then she sends him off a message 'take a deep breath, you'll be OK' and he knows that she is with him as near as if he could touch her Somewhere the phone is ringing, like it has been all day long, but this time when she reaches, and her fingers curl to bring it gently to her ear... before she hears his voice she smiles for she knows before he speaks that it is him, and she listens as he softly tells her 'I Love You' She doesn't know just why this happens, why she feels his touch when nothing's there; why his sleeplessness keeps her awake; why her eyes feel heavy when he's tired. She doesn't know how she knows his troubles; how she feels just what he feels, she just knows her heart and his communicate beyond all logic of the mind.
+Written October 26th, 2001 ©  on Oct 26 2001 05:03 AM PST   18  • 0  • 8
