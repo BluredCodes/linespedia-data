@@ -1,0 +1,24 @@
+---
+title: "How deep"
+writer: "kittymeow"
+slug: "how-deep"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/13147-How-deep-by-kittymeow"
+---
+
+HOW DEEP ARE THESE NIGHTS THAT KEEP ME HERE ?
+
+THE SPIRAL CANNOT CONTINUE
+I VE BLED TO MUCH
+
+HOW DEEP ARE THESE NIGHTS THAT KEEP ME HERE ?
+
+CAN THEY SWOLLOW ME WHOLE
+I BEG OF THEM TO SWOLLOW ME WHOLE
+
+THE CRACKED WALLS THAT SURROUND ME
+ARE PLASTERED WITH COLOR
+
+BUT HOW LONG CAN THE COLOR
+HOLD THEM AT NETURAL
+Written November 6th, 2001 ©  on Nov 06 2001 11:18 AM PST   10  • 0  • 1
