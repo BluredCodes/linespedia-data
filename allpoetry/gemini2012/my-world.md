@@ -1,0 +1,10 @@
+---
+title: "My world"
+writer: "Gemini2012"
+slug: "my-world"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/16010-My-world-by-Gemini2012"
+---
+
+Hello and welcome,To the world of doom,And watch your step,For every where you boom,People disown you,People control you,People hurt you,People enrole you,Screams of pain,Dreams invain,Hurt, disonisty,Love is far from me,Welcome to my world,Here's the broshure,Hide while you can,From a world that's so cruel,Don't step on the stones,They'll come up and get you,Don't try to heal you bones,THey aim to distroy you,Look back on this world,And never return,This is your warning,I told you to learn,YOu get scars and crapes,Hurt and raped,Fire will burn to you,And when it's all finished,Your heart will be burnt,Your soul will be fire,Your life will hurt,The rivers are deep,The oceans are wide,Watch out for the rain,Of suicide,The people around me,Have blood in their eyes,Some of the people,I need to despise,Their souls are of fire,They're minds are of hurt,They're used to this pain,That has left their souls burt,THey don't mind to be cut,Or silt or ingected,IN this kind of life,There is no imperefected,Many years ago,Alot lost there dreams,If you walk in my world,YOu'll hear deadly screams,THeir Yells bounce off the walls,YOu can listen as they scream,Their chorus calls to you,They have left their sweet dreams,DOn't be afriad freind,Get used to the pain,Even though,all of your screams are invain,They lost all their wishes,We've lost all our dreams,And the demonds around us,Always can feed,They don't feel fear,Pain of hurt,THey don't cry tears,They're souls are burnt,Don't stay in my world,You'll never return,Turn back on my world,Or you'll endlessly burn
+Written November 17th, 2001 ©  on Nov 17 2001 12:09 AM PST, Melinda Hatfield   18  • 0  • 9

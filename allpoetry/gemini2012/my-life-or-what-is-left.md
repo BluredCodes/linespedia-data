@@ -1,0 +1,10 @@
+---
+title: "My life or what is left"
+writer: "Gemini2012"
+slug: "my-life-or-what-is-left"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/16012-My-life-or-what-is-left-by-Gemini2012"
+---
+
+It's sad when your tears have ran dry,Like mine,It's wrong when your friends think,That you are cool because you sink,To the level of the devil just to live life,And you cut yourself with a bitter knife,Just so that you won't fell sorrow,Or won't have to live through tomorrow,It's a lie to think your right all the time,When in the end your opinions only worth a dime,No you don't know my life,And you don't know my sorrow,You don't know my pain,don't you think I know what I am,Now all I hear is the drip..drip.....drip..of the blood off my lip,Beaten and abused,Hurt and melested,Shot at and battered,Money invested,Raped, hurt,Alone cold,Dieing, crying,No one to holdSlit,Cut,Stabed,fuck,My life a living night mare,Everyone stares,In this world of drugs and crime,Everyone hates you,when your lifes worth a dime,I cry for my family,My son,And my love,I cry for my heart,My hate,And life,forever a saint,I cry for my prophoceys,That drive me insane,I cry for my dreams,That cause me such pain,I don't know what I'm here on this earth for,And everything I know sends me out the door,I'll go to a party,And die from drugs,No one at my funeral,And no one to love....You think I'm pure maddness,My hearts alone and full of sadness,But if you knew me and my life,Then you'd finally understand,Why I cut myself with knifes,Now Mattie don't cry,Mommy's alright,No I'm not goin to die,Is hurting a crime?Now in this life,It's filled with hurt and laws,People will get you,With hearts like daggared claws,Let my bleed,Let me die,Let me hurt,Let me cry,Let me kill,Let me call,Let me slit,Let me fall,Let me stab,Let me live,Let me die,Let me love.....
+Written November 17th, 2001 ©  on Nov 17 2001 12:15 AM PST, Melinda Hatfield   18  • 0  • 1
