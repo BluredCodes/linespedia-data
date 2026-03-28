@@ -1,0 +1,10 @@
+---
+title: "I Want to be Free"
+writer: "Nafumjromwami"
+slug: "i-want-to-be-free"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17954-I-Want-to-be-Free-by-Nafumjromwami"
+---
+
+Freedom! Freedom! I have longed for you,I have searched and searched, but never fully found you,Freedom, where is your hiding place?Why are you so scarce?Why do you come to me in bits and pieces?You are so precious, incomparable to what the eye can see, what the ear can hear, what the hand can touch,what the tongue can taste, what the nose can smell, what the mind can think, what the heart can contain, even to the precious gold which brings joy and sadness too.If freedom is choosing what I want to do without outside forces, then I have never been fully free. For once,I never chose to be born,I never chose my parents, my race, my colour, my language, my environment- someone somewheredid it for me!Even if I chose to be male, would I have been free? In any case, I did not; my mum did it for meWhen I wanted to eat, walk, cry, or do anythingshe was there with me.As time goes by I ask myself; when will I be really free? I seem to have fought the battle for freedom but won less,I have wanted to be free but behold a prisoner tomyself, to my family, to my friends, enemies, the world, nature,and above all to the fear of the unknown.My good friends tell me that I have limited freedom. But who or what is this that limits my freedom? Do I need to know this unseen ‘force’?I don’t know. What I know is that I want to be free! Free forever.The little freedom that people have end up misusing it. And we are left prisoners to ourselves and the world around us. Even if we had too much freedom, we would still misuse it. We had too much freedom that Osamas took advandage of to strike.
+Written November 25th, 2001 ©  on Nov 24 2001 05:14 PM PST   0  • 9

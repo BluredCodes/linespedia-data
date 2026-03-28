@@ -1,0 +1,10 @@
+---
+title: "Untitled (If You Look )"
+writer: "BrokenWings"
+slug: "untitled-if-you-look-"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/17959-Untitled--If-You-Look---by-BrokenWings"
+---
+
+Many a night have I lay, wakingAllowing my thoughts to drift back to youI meditate on your words, your actionsWith you I float to the middle stateHolding your hand and kissing your cheekI permit you to lead me away..Hearing you calms my tumultuous mindYou are the very air that I breatheLoving you means so many thingsAnd I thought myself unable to feel..A glance from you sends me spinningThe words you speak effect my every thoughtI'd do anything to protect you from painI'll be there the second you callI'll hold you safely in my arms I'll kiss your every tear awayI'll whisper how much I love youUntil you want me no longerYour touch quiets my cries of hurtYour voice soothes me into peaceI love you with my entire beingMy soul mate, my one and onlyI pledge my love to you, foreverWhether you return it, or notI love the way you smile and laughI think of your presence beside meThe face that I love inches from mineThe rising and falling of your chestThe beating rhythm of your heartI love all of these completelyAnd I know you're leaving me soonAs alike as we are, we're different The possibilities are endless for youAnd nonexistent to meRemember me for my love, if anythingEnduring, passionate, true..I'll love you when you say goodbyeI'll love you when you break my heartI'll love you when you love anotherI'll love you when you lose your hairI'll love you no matter what you doI'll love you when I'm gray and gone..Even if my heart should breakEven if my soul should shatterEven if I die insideI love you unconditionallyI love you eternallyAnd I'm always here, if you look..Just something I slapped together.. Trying to express my feelings.. But I'm having writer's block.. and I promised Jen I'd post.
+Written November 24th, 2001 ©  on Nov 24 2001 05:41 PM PST   18  • 0  • 8
