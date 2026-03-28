@@ -1,0 +1,10 @@
+---
+title: "Why?"
+writer: "San d"
+slug: "why"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8642-Why--by-San-d"
+---
+
+Why?The heart with in this child aches.Watching Mommy and DaddyMy little heart breaks.Why is Daddy leaving?Why is Mommy screaming?And why am I silently grieving?I lay awake alone each night.And wonder why they must fight?My lips they, quiver.I can't help but shiver.As I Plead, Oh Lord,Let them be alright.Now my Daddy is gone.And I know not where.I wonder where I belong?Does Mommy still love me?Does Daddy still care?oh, how my life has changedaround here!There's no laughing in myhouse anymore.There's no more singinglike there was before!My Daddy is gone.And our visits are rare.I hurt inside butit seems nobody cares.My Mommy tries to fill the gaps.But there's no more sittingon my Daddy's lap.My Mommy says he hadto move far away.And now he can't cometo see me everyday.I cry and I say 'I'll be good'.That I'll be the little girlthat I should.Just Please Dear Lord,bring him back if you could.I want him back,in my childhood.Now the days have passedand times gone by.My tears have subsidedand I seldom cry.My Mommy has founda brand new life.But for me there is one thingthat lingers inside.I can't help but wonder Why?Why did you leave me?My daddy Dear.Why did you stay awayfor all those years?Why didn't you comeand dry my tears?Why did you leave mewithout a dad? Daddy didn't you knowthat I was so sad?Daddy,I thought of you oftenand wished you were near.Daddy, I prayed all the timemy wishes you'd hear.Daddy time has taken awaymost of the pain.But there's one thing I've learnedand something I've gained.Daddy the love a childIs something so rare.Daddy a child without love.Is a child in despair!
+Written October 16th, 2001 ©  on Oct 16 2001 03:11 PM PST, Sandra Kay Ratliff   0  • 1

@@ -1,0 +1,10 @@
+---
+title: "[] Dismission  []"
+writer: "asaihati"
+slug: "-dismission-"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8722--Dismission---by-asaihati"
+---
+
+[] Dismission  []Silencedismissed me from my heart,My dawn coffee is late,Fission of litters and words,all show a part of the necklace,Time dismissed me,friends,and, lovers,I’m not who drown my day neither tomorrow,I’m just a passenger to what the well want,the sand boat moves form a valley to another valley,my escapes dismissed me form my innate,and asked me………?Don’t you know me?She says ,the dream, and happiness of youMy vehicle dismissed me,I’m so far behind,I wish my litters paved roses on roses, steps on it my next soul,My bed Dismissed me,is it fare give for not your body rest, and store the hardship?Come to me,the door is till open for you.I have all what you like and dream(s)ofhaving, and desire,I gave you the chosen,leave the moon and the candle, to the nightmares,Dismissed meI gave my hand and my self,to a soul walks with my soul in the sky I did not see, or observe like her,She keeps passing on my mined,ring my bells,its' formation was mixed a clay and water,from the time, she told the truth,and, opened the pure flowing spring,She dismissed me,She moves my eyebrows a moment,She moves my pen a moment,She move the dragging letters, and, extract them from my depth,If she did not became,the one, I wont describe her,ButI used to have a pot,Got wider and bigger,to be contained contained,till it got full,The wend sailed with it, to the unknowns,asking will she be the one???Or living in my hot linesWhen will she know, and answers me???Links are not there to come near and beLetters insides medismissed me,observations of live short cuts,I keep all,If you want to know me!!!I want to know you too!!!If you don’t talk,I better keep some for me,to dismiss me-------------------------------------------------}------------------------------}----------------}Sun of SaSometime asking something and gitting no reply, those words come in between lines of the mined,
+Written October 17th, 2001 ©  on Oct 16 2001 11:10 PM PST, ِِAli M.AlSaihati   0  • 13
