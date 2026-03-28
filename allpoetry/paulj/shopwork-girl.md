@@ -1,0 +1,10 @@
+---
+title: "Shopwork girl"
+writer: "PaulJ"
+slug: "shopwork-girl"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8266-Shopwork-girl-by-PaulJ"
+---
+
+Where are you now shopwork girl?Are you with your knight?Who took you of on his white steed?And to a better life?Does he make you happy?And sometimes when you’re lowIs he always there for youNo matter what’s gone wrong?Now as you stroll round your estate,Counting out the roods,With Spaniels yapping at your heels,Dressed in your country clothes,Do you think of way back whenThe scene was swinging fast,And ‘trannies’ tuned to Luxembourg,Or Alan Freeman’s pops,Set your feet a-tappingTo a Lennon and McCartney song?You were pretty way back then,Slim with long fair hair,But wore your skirts a touch too longYour shoes a little square.You didn’t have an interest inKeeping up with styles.Having no one close to you,You didn’t spare the time.Lost in that void, you met a clown(Do you remember how?)Introduced by a mutual friend,He offered you his hand.With aspirations held in check,You took his palm and smiled.Not knowing what the future held,You uttered some pat line.Soon to that clown you becameMore than just a whim.He drew you from the shadows,And let you lean on him.He taught you how to laugh again,Turned darkness into day.In return he took your trust,Each to each you gave.But like a flower that blooms in springAnd dies when summer comes,Youth is but the season,And first love is the flowerSo with your newfound self esteemYou grew in restlessness.When time rang out the changesThe tide began to ebb.So where are you shopwork girl?Are you still with your knight?Or did you draw him from your dreams?A ruse to keep you out of reach.Is your estate a lonely roomYour only jewel some old sad tuneAnd are the spaniels at your feetJust memories and pride?This is only sort of autobiographical.
+Written October 15th, 2001 ©  on Oct 15 2001 04:23 AM PST   0  • 8

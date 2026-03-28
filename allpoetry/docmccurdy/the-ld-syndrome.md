@@ -1,0 +1,56 @@
+---
+title: "The   L/D   Syndrome"
+writer: "DocMccurdy"
+slug: "the-ld-syndrome"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/8279-The---L-D---Syndrome-by-DocMccurdy"
+---
+
+It is a basic (acceptable) fact amongst eastern Pundits (and believers of Astral Projection, Life after death but not the conventional type, and out of body experiences) that all living creatures biologies are made up of a Physical shell and a spiritual self.
+This can be easily understood if you can imagine a mollusk, or a tortoise, which need a shell for their body to live in.  Therefore, for a living animal or plant or bacteria to survive it requires for its spiritual self to find an empty body, or in every case (with very few exceptions) to roll over from a dead shell to one that is just in the process of taking birth.
+Thus only the physical self expires, and the spiritual self lives eternally in a wandering mode.
+The physical shell is what gives the spiritual self a shape, and enables it to function by providing it with basic survival items, such as, eyes to see, lungs to breathe in air, heart to pump blood, and anything or everything that will allow the physical self to survive and  function.
+
+It is a valuable partnership, for without one, the other cannot survive. The Physical Body needs the Spiritual self to keep it in its place and infuse it with the fuel of life, while the Spiritual Self needs a house to live in.
+The Physical Body is thus obliged to reproduce, so that the process can continue and  a wandering spirit can relocate itself.
+The Spiritual self uses the brain and its network to control the body.
+We have a notion that the brain is the center of all activities , and its network controls every body motion.
+Now, this is quite agreeable and undisputed. However, this is not the point of this discussion. We have already agreed that the brain to function and control, it needs the induction of life giving fuel by the spiritual self.
+
+A Robot (man made object representing a human or other living creature) has all the physical shape and attribute that, for example, a human beings Physical side possesses, but alas, lacking the spiritual side, it is unable to function like a living animal.
+Although we attribute our senses such as sight, smell, emotions to our Physical Side, when the Spiritual Self is no longer effective, then these senses have no meaning and they slowly dissipate.
+
+When does a person die? The heart may stop beating, but a person can still be alive, as the brain may continue to function for some time although it may be starved of oxygen. Or, on the other hand,  the brain may get damaged but other bodily functions may still perform normally for a period of time. So, when does a person actually die?
+
+Death is the moment when, after all bodily functions cease to exist and come to a halt, and whereby, the spiritual self can no longer sustain itself and utilize the activities of the physical self, and it loses all the energy given to it by the Physical side, then it has no option but to relinquish the body, and begin a wandering process until it is time to re-enter a new born and re-start the whole process once again.
+
+So, to the next question. How come the newborn babies not carry the memories of the past life?
+
+The answer is simple. The Physical Self’s computer, the brain, maintains the memory cells which retain all the happenings in one's life. Unfortunately, when a living being passes away, the spiritual self is wrested or sucked out of the Physical body, which retains the brain and other organs such as heart, lungs, etc. The Spiritual self is without energy, which is what the Physical self possesses, and thus is unable to carry with it, a physical substance. (Although, exceptions have been noted throughout History when people have been able to remember their past lives.  The explanation of this phenomenon appears quite complicated and could be comprehensively understood if we were able to accept that the Spiritual side somehow managed to attract a minute amount of energy which it was able to save and carry with it some memory of its past life.)
+Once out of the body, the spiritual entity begins a life of wandering, which could takes weeks, perhaps months or years before it could accumulate enough energy to be able to re-possess another body and renew its Living campaign once more.
+
+How does the Spiritual Side know when the time has come?   In most cases, it is capable of understanding that it has gathered enough energy to be able to compete with other roaming spirits and infuse life into a creature about to be conceived. However, it may continue its wandering process even though it may be ready to start a new life, as it may find peace or perhaps just enjoy the wandering, until it is so full of energy that it has no option to take in the first available body. On the other side, it is also possible that it may misjudge the energy it has accumulated during its period outside the body and break in too early. Both these instances could result in adverse reaction whereby the soul could inadvertently jump species, coming back to the world in a totally different form and shape; A human returning as a dog, and or vice versa.
+
+
+
+With these points taken care of we are now in a position to understand the L/D syndrome or also known as the Life/Death or Living/Dying syndrome.
+When a living creature is alive, then death is always stalking it. When the creature is dead, then life is always in the process of trying to relocate itself, and live again, until such day that death is an eventual victor. 
+This continuous process of struggle between life and death is widely believed as The L/D syndrome.
+The living body continues its struggle to keep on existing. It endeavors its best to ward off death by providing means and ways for its physical self to survive, and so that the spiritual self need to relocate itself does not arise. It is like a mother protecting its baby. It will fight diseases, ward off evil, and devise ways to overcome trauma that may result from such incidents, just to sustain itself and continue the selfish cause, merely to defend the territory where the spiritual self cohabits and continue to infuse life in the otherwise lifeless body.
+
+The interesting thing is that when the time of death approaches, most living creatures become suddenly aware of this fact. Some instances they panic, others coolly accept it, concluding that this is just a transitional period and that very soon they will restart all over. This can be elaborated with the following examples:
+A lion attacking a herd of deer. The herd continues to gallop at a fierce pace trying to out run the lion, when all of a sudden, a deer will give up, remove itself from the herd, to be chased alone, and overcome by the lion.
+My friend whose father expired narrated a recent example to me. On the hospital bed, he told his father that he would be taking a few days leave from the store where he worked, so that he could attend to him and look after his needs.
+His father stared at him for a moment and then told him, perhaps that may not be necessary. His father expired the next morning.
+In both instances, the impending death was recognized by the spiritual self, which having realized was a certainty, had (maybe reluctantly) accepted the fact and not only was preparing itself towards the outcome but acknowledging it as well.
+At this time, it is possible to introduce a new item known as ‘the Death Syndrome’.
+
+The Death Syndrome is the ability of the living creature to turn on the process of death. It is a stage where a living body forces itself into a state of suicide whereby it slowly shuts down all the doors that is mandatory for its living process and proceeds to began a state of dying. This topic is also very difficult to understand. What we have to try and appreciate is the cycle and struggle between living and dying. There are 2 main stages, one, that is the ‘living stage’ and two, the ‘dying stage’. Also there are many sub stages in between, which lies between the living and the dying. For example, the day a child is born, this is the extremity where the ‘living stage’ is concerned. The next day can be considered as life –1, the next life –2, and so on. So, as days pass by, a living creature is slowly progressing towards its  ‘dying stage’.  Every day, the living cell becomes weaker, the heart becomes older. Consider a machine, the parts wear and tear, and reach a stage when it cannot sustain itself. That’s the dying stage.
+The ‘Dying Syndrome’ is the ability of a living body to turn on the process of death. This sentence can now be considered in the above light. This differs from the word ‘suicide’ which is a sudden ejaculation and emancipation of the spiritual self out of the body using violence or other method to end life suddenly and prematurely. The Death Syndrome on the other hand is the process of slow degeneration of the body, and the body parts. It is similar to slowly turning off the taps of life, in a controlled program, voluntarily or inadvertently, accidentally or intentionally. The end result is moving towards the L/D syndrome.
+In living mammals, creatures such as Octopus are known to activate a gland that will allow itself to starve to death no sooner it’s reproducing life has come to a halt. Another example would be seen from the life of human beings itself. It has been noted that a lifelong marriage between a couple, say for fifty or more years, when ended with a spouse passing away, is usually superceded with the other partner following suit within a short span of time. 
+This may not always be true, only if the partner is able to understand the significance of the L/D syndrome and also able to switch on the Death Syndrome.
+This is also true in cases of human beings who have lost all interest in his/her present life, have seen all ambitions materialize, or have no faith in living, and unable to see light at the end of the tunnel, this person may choose to terminate his life so that he/she may proceed to a life of wandering, and begin a new life once again.
+The process to this venture is quite complicated, and if a person is very knowledgeable in Yoga, and other spiritual relaxation method, may be able to choose a time span for the whole process to take effect. That means, in pure and simple form, he/she could time his departure from this life, say within five years. Then, in any attempt in yoga or relaxation, he/she would slowly program his body to periodically shut down its processes within the time frame the target period has been set.
+Of course, this premature termination can have its ill effects, which, by the way, also includes suicide, and this syndrome can also effect a soul to jump species.
+Who knows, a human being, in perfect health and frame of mind, can return to take the body of a cockroach or an earthworm!This is the way I look at Life & Death. I would love some comments.
+Written October 15th, 2001 ©  on Oct 15 2001 05:37 AM PST   0  • 13
