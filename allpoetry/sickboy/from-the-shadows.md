@@ -1,0 +1,10 @@
+---
+title: "From the Shadows"
+writer: "SickBoy"
+slug: "from-the-shadows"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/19226-From-the-Shadows-by-SickBoy"
+---
+
+As I heaved the heavy clad doors I stepped into a dim room. I found myself being peered at, being sized up and devoured by what seem like a hundred eyes from the shadows. My body became instantly rigid. I wondered if any one could sense the tension surging through my bones to the very marrow? I slipped to a far corner hopping to blend and maybe leaning against the wall hoping take some tension off me. I slowly peered through the haze in the room staring back at all the forms moving in the shadows slipping from here and there. Leaning against the wall didn't help any. It felt like every time I touched the wall it cringed as if repulsed by my presence wishing to some how spit me out or grind me with in. Suddenly I was blind with a shooting pain deep in my head. Few seconds later I regained my composer realizing lights had been turned up full. The room now filled with people conversing  with each other glancing at me ever once in a while. I was in Ms. B's drama room but it still coiled with a feeling of sentients. That's when I saw something I will never forget. It seemed to glide across the floor, it's body slightly swaying. Hair like the rich brown soil with golden hew shimmering under the scornful lights. Its skin show as white and perfect as a single doves feather. Its eyes seemed to penetrate my very soul filling me with fear. Coming out of my daze I realized it was no more than three feet in front of me. I froze inside, every muscle denying my will to turn away. My eyes fixed with it's. Like thunder breaking the motionless air, Hi I'm Lindsey.    Dedicated to my true love %^) 11/29/01
+Written November 30th, 2001 ©  on Nov 29 2001 05:09 PM PST   0  • 8
