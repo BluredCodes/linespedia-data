@@ -1,0 +1,10 @@
+---
+title: "The Inner Self Still Binding"
+writer: "carsonegsmith2"
+slug: "the-inner-self-still-binding"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9963-The-Inner-Self-Still-Binding-by-carsonegsmith2"
+---
+
+If I have lied to tell the truth then I repent my soul to torture,Innocent I have become to the world's most dreaded desires,Simple thoughts inside a mind clouded with sentimental judgment,No life to live with joys of the world and alone I sit in the corner.My tortured hands marked with painful memories of a life unexpected to man,No high expectations except for turmoil and shame,I have asked the question of human meaning to the men that work for Jesus,But they just look at me with empty eyes as I say, 'Where is my savior'?I cry inside and wash my eyes from what I see around me,I want to run and hide away from the ones I see everyday,No hope for this a life for peace as I engage my days in battle,Then home again to sleep the night then off in early morning hours.There's no wind around me blowing, no wind I feel outside,Just cold bitterness standing still to chill my bones to death,My eyes are dark and marked with sleepless nights of dreams,Dreams of life I do not know and a world I can not see.My body feels the outbreak of this and I slowly crumble to insanity,Not in a psychological danger to hurt and destroy what I see,But a state of darkness that leads to a life of depression and sadness,So alone I have become with thoughts of rain and anguish.There was a time when life was so simple and worry was a thing of desire,Now as I remember those days I wonder why no one told me of such torture,Closed eyes I see in a world I know as home and a place I know as life,And I drift into my state of acting and present a play called nature.Naturalness is word once taught from the men that read the scripture,No scripture I have read that can teach my heart to want,I fear the lies that's around with world for hope for a better tomorrow,But respect the minds so weak with thought to believe in such Carson Edward George SmithMay 8, 2001
+Written May 8th, 2001 ©  on Oct 23 2001 12:45 PM PST   0  • 9
