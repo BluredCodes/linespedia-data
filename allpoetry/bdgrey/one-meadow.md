@@ -1,0 +1,13 @@
+---
+title: "One Meadow"
+writer: "bdgrey"
+slug: "one-meadow"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/20468-One-Meadow-by-bdgrey"
+---
+
+A Celtic mist arose from the Scottish plains of rolling hills surrounded by forest.  Low clouds hung higher than the canopy, but low enough for the grace of feather to get lost in.  Morning dew formed cute, little droplets on the tips of each individual blade of grass that so helplessly swayed with the rhythm of a soft breeze.  Forever had the land remained untouched and sacred.  Yellow flowers with red spots littered the floor intertwined with the green, but stained grass.  Peace and serenity hugged the land while guilt of the past could be painfully felt.
+	Nature felt no pain however.  Only the eyes of an onlooking observer could perceive the magnitude of the necessary tragedy.  This virgin land had been brutally and savagely awakened from its millennia of slumber.  Corpses littered the ground, many missing appendages, others with footlong crevices along their chests and still others with bodies and heads no longer joined.  Steel and splintered wood, once a part of armor, weapons, and ammunition, now lay in disarray on the land.  The grass now blood-soaked and trampled flowers, now satin in color, would forever know the story and feel the pain and sacrifice of war.
+	Seven hours, two countries, 200,000 men a piece and 350,000 lay dead or dying.  And for what purpose?  The only contradiction would lie in the idea of not fighting or not winning, but in the fact of losing in vain.  This land would soon recover as nature always does, but the spirits of men are a far more fragile resource.  Long after the bodies picked up, the stains dissolved, and the flowers regrown, the families of those dead, the countries that fought futilely, and souls now lost, would still remember every cut and bloodless scream from those that fought that day.  
+	The power of nature lies not in its ability to forget, because it doesn’t, but in its apathy.  The sun will always shine, birds will always fly, and rivers will always run.  Life moves on, and so shall we.I wrote this as an assignment in my creative writing class a few years ago. We read a story about a guy name Mishima who sacrificed himself for what he believed. We were supposed to write a short story about something similar. I wrote this. I had always planned on revising it, making it longer, and so on, but I never got around to doing it. I might one of these days, but for now, I present it to you in its original form. Enjoy.
+Written December 5th, 2001 ©  on Dec 05 2001 04:54 AM PST   0  • 12
