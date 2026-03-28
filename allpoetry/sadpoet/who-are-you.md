@@ -1,0 +1,10 @@
+---
+title: "Who are you"
+writer: "sadpoet"
+slug: "who-are-you"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/14963-Who-are-you-by-sadpoet"
+---
+
+who are you to run my lifesaying i can not take this knifeand cut my veins, open wideto make up for the times i criedand who are you to run the showtelling me where i will and will not gowho are you to control my mindmaking sanity so hard to findand who's to say you're not the one for meand just a friend is what you should bewho are you to decide thiswhen all we've had is just one kisswhich meant everything to me and nothing to youand who are you tell me what to dotelling me you love me so frequently it seems fakei know letting myself love you is just a mistakewho are you to mix my emotions with hateand who are you to tell me my own fatehow do you know you're not the one for mehow do you know we are not meant to bewhy do you get to make the choices that pertain to uswhy am i not included, why do you get mad when i fusswhy can't we be together more, i like it when you're therei like the way, sometimes, you make me think you carebut deep down inside, i know you really don'tyou say we'll be together, but i know for sure we won'tyou're pushing me away lately, talking to me lesstaking away your friendship is what brings me so much stressknowing someday you might be goneleaving me alone here to carry onand who are you to take a life awaytaking away someone i'd love to see everydaywho are you to be so self centeredyou can't exit my life once you've enteredi love you too much to let you slip awayi wanna show you i love you, everydayi wanna make you show that pretty smilethat makes my everyday seem worthwhilei wanna be here for you and kiss away your tearsand i wanna spend with you, endless yearsso who are you to tell me nocuz if u never try, then you'll never knowIT'S FINISHED NOW!!! YIPPEE!
+Written November 13th, 2001 ©  on Nov 13 2001 01:17 PM PST   18  • 0  • 10
