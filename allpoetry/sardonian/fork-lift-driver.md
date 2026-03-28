@@ -1,0 +1,10 @@
+---
+title: "Fork-Lift Driver"
+writer: "Sardonian"
+slug: "fork-lift-driver"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10328-Fork-Lift-Driver-by-Sardonian"
+---
+
+I once had a job as 'Fork Lift Helper.'                        Back when no more than a skinny yelper.                        My job was to ride on the back of the Lift,                           Put up with the drivers gruff and griff.                        Slip those braces neath the wooden skids,                             And any other crap the driver bids.                               He liked to try and buck me off,                                  Always hard, nothing soft.                      He'd laugh with a devilish mean-hearted grin,                       But I kept coming back every day and again.                           He liked to display his muscular arms,                      Flies seemed to gather around him in swarms.                    He'd bump my kidneys with the Fork Lift prong,                      Then roll his eyes as if he'd done no wrong.                      It was rough, it was hard, but I toughed it out.                       Then the strangest occurance came about.                       My summer was over, it was back to school.                        No more being the Fork Lift Driver's tool.                    Came to get my check, walked through the yard.                        recalling the misery of working so hard.                              Fork Lift Driver pulled me aside.                         Hammy handshake, beaming with pride.                          'Go on to school, see what you can be,                       You've proved your worth, working for me.'                          It's taken me a lifetime to understand,                      It's the Fork Lift Drivers who made me a man.
+Written October 25th, 2001 ©  on Oct 25 2001 04:38 AM PST   18  • 0  • 10

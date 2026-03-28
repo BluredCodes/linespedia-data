@@ -1,0 +1,10 @@
+---
+title: "Home Depot Widow"
+writer: "SwampPrincess"
+slug: "home-depot-widow"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/10282-Home-Depot-Widow-by-SwampPrincess"
+---
+
+The note said: 'Baby I’ll fix that dryer when I get back,gone to Home Depot to get a new latch”I Know those wet clothes in the washer will be sourBefore he gets back at a decent hourAs he enters the store, he takes a deep breath, his heart racesHis eyes are like saucers, he even skips a few pacesGrabbing a cart he pushes right off to exploreLike a great big kid in a great candy store, It’s aisles and aisles of tools and gadgets galoreThe smell of saw dust and fresh paint fill the storeWith the sound of a fork lift grinding its way It’s a testosterone world each and every dayHis stops to admire a new tool box, oh so smartWith little drawers from bottom to top and wheels to roll, It’s like the one Nas Car guy’s have he’s been toldIt won’t fit in, but he pulls it behind his fasting filling cartNow that new big air compressor is a must buyHis old one is so small, that won’t do at allHis hand fits perfectly on the portable drill gripIn the his cart it goes, along with a new bitHe turns a corner and his heart skips a beatA row of new riding mowers with shiney new seatsFirst one then the other till he finds the oneThat looks good and fits his cute round bunsThen all of a sudden comes a loud cry over the PA The store is closing come up front and paySo with his full cart and tool box behindHe goes up and gets in the long  male lineWith totals added up it came to hundreds of $$$$He whips out the check book and scribbles awayKnowing when his wife finds out there will be hell to payBut it will still be worth it,for the a great time he’s had todaySometimes a man has to do ,what a mans has to do, its his fateSo he drives home late with a contented smile on his face, Then remembers the latch he went for in the first placeWell Home Depot opens at eight,he'll back and won’t be lateI think all we women know..the HOME DEPOT is the place men love..
+Written October 25th, 2001 ©  on Oct 24 2001 10:46 PM PST   0  • 14
