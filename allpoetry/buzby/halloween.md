@@ -1,0 +1,10 @@
+---
+title: "Halloween"
+writer: "Buzby"
+slug: "halloween"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9506-Halloween-by-Buzby"
+---
+
+HALLOWEENTo make a spell on Halloween.Take blood of mouse and monkey spleenWing of bat and leg of mothHubble bubble boil and frothGrab three toads and in they goEeny Meeny Miny MoThe night that falls upon the landIs nothing more than sleight of hand -A witches trick, magicians wheezeA conjured image sent to teaseCaptured by enchanted spellsA thousand pealing midnight bellsAll round the world the cauldrons boilWith magic potions, mystic toilSmoke rises up, some blue some greenAnd in its swirls a face is seenA wizard returning from the deadWith eyes that smoulder deadly redThe witches cackle aloud with gleeFor it was they who summoned heTo help them with their evil planTo overpower earth and manRevenge for days when witches burnedAll their spells and potions spurnedFor years the rage has grown insideUntil, at last too big to hideWith spells and tricks to help deceiveThey gathered on All Hallows EveHocus Pocus filled the skyForgotten spells from days gone byBut for the witches it’s too lateAll they have done is seal their fateWoken from eternal restThe wizard does not feel his bestHis temper flares his finger wagsHe points it at the cackling hags“On Halloween this lesson learnWitches scream and witches burnWhoever disturbs a wizard’s graveWill ever after be his slaveWitches burn and witches screamBut you are mine this Halloween”As midnight falls upon the landThe mighty wizard lifts his handThen in a flash, back to the groundAll are gone without a soundBut sometimes if you listen outYou can hear the witches shoutA spell that rises from the soilAs all the wicked witches toilWith hubble bubble boil and frothWing of bat and leg of mothTo return to earth on HalloweenTake blood of mouse and monkey spleen…
+Written October 21st, 2001 ©  on Oct 21 2001 06:24 AM PST   0  • 10

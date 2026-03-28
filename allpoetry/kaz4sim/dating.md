@@ -1,0 +1,10 @@
+---
+title: "dating"
+writer: "kaz4sim"
+slug: "dating"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9486-dating-by-kaz4sim"
+---
+
+Beware: this is a long one !From when I was a young girlI knew that the life for meWas a sweet and caring husband And kids in my familyBut growing up’s not easyAnd the dating things a jokeToo many ‘Walter Mitty’s’And very few nice blokesI fell in love quite oftenOr so I thought I didBut most of the ‘Men’ I datedSeemed nothing more than kidsI’d always get quite anxiousWhen going out on datesButterflies in my stomachAnd I dare not be too lateMy hair was always ‘Perfect’Make up and clothes so fineI’d be on my best behaviourTry to stay in lineBut all the time I’d end upWishing I was somewhere elseThese ‘Guys’ were not the one for meI’d end up on the shelfSo then I gave up datingDecided to take a restLost myself in voluntary workIn a youth club.. it was the bestMet lots of lovely peopleI had loads and loads of funDid lots of fun activitiesWent on outings in the sunIt was there that I met SimonHe was a volunteer tooHe had a kind and caring natureAnd would do anything for youWe got on well togetherHe was always having funI never thought he’d be my manOr he was the perfect one!Well he asked me to the moviesAnd I thought we’d go as matesI didn’t really fancy himHe wasn’t my kind of ‘Date’When he turned up to take me outI wasn’t even readyI looked a mess, well what the heckWe were not ‘Going Steady’No butterflies in my tummyNo feeling sick all dayNo nervous, anxious feelingsWell.. what can I say??We had a real fun eveningHe was a real fun guy as wellAnd that was where it startedAnd my tale is left to tellSo its not that first impressionOr the feeling of intense loveThat leads you to your chosen oneSometimes you need a shove!!But I thank god for SimonHe’s my life line in a stormHe’s the rock on which I can dependHe shelters and keeps me warm12 years on and here we areThere’s 5 in our family3 beautiful, wonderful childrento make our lives complete.
+Written October 21st, 2001 ©  on Oct 21 2001 01:05 AM PST   0  • 8

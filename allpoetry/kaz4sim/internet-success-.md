@@ -1,0 +1,10 @@
+---
+title: "Internet success !!!"
+writer: "kaz4sim"
+slug: "internet-success-"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9484-Internet-success-----by-kaz4sim"
+---
+
+I wrote this poem a few months ago, after thinking i knew ALL about the Internet..8 months ago, this very day,I logged online, was on my way,The Super Highway to me was calling,Thought it was easy - I was falling.What was Lyco's, Search and Scoot?Watch me surfing', what a Hoot!!Kept tripping up, I was Dismayed,The message read 'Page not Displayed'.My Internet provider was AOL,With 100 free hours, thought that was swell!Was Online both day and night,No cost to me!…. What an Oversight!My cable bill arrived too soon,My telephone cost had hit a boon!'Thought it was free'? My Hubby said,'We can't pay this, We're in the RED!'I hadn't read all the text,The part I missed follows next….You only pay for your telephone line,'That’s not fair' I began to whine!Now I'd learnt the hardest way,Paid my bill the very next day,Freeserve's good my tutor said,No monthly bill, no in the red!Got into chatting very soon,Thought it was fun, went in all rooms,Soon got bored, tried online games,Catchphrase puzzles and finding names.'There must be more to this' I'd say,It's supposed to be good.. The Super Highway,Then I found Scoot and Lyco's too,Finding out things we liked to do.Children's homework was such a snitch,Logged online without a Hitch,History projects and others too,Who's Graham Bell? What did he do?All the answers came flowing in,You’re a Genius mum, the children grin,Our projects will be the best in school,Thank-You mum, you're so cool!With praises ringing in my ears,The Internet lost all its fears,I surf most nights, the kids in bed,But I watch my time..no more in the red!So if you're thinking of logging on,Read all small print hard and long,It's not confusing, take my advice,Use NTL, you won't think twice!
+Written October 21st, 2001 ©  on Oct 21 2001 01:01 AM PST   0  • 14

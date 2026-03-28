@@ -1,0 +1,10 @@
+---
+title: "For Beth with love"
+writer: "kaz4sim"
+slug: "for-beth-with-love"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9488-For-Beth-with-love-by-kaz4sim"
+---
+
+Another long one!! written for my beautiful daughter on her Communion DayThe sun shone bright from up above,God looked upon you with all his love.'This day's for you' is what he said,The special day when you share my bread.The church was filled, no seat to spare,Girls dressed in frills, with curls in hair.You joined your friends, all eager and keenYou truly were a sight to be seenThe mass began, the people stoodThe choir sang hymns of truth and goodI looked at you all dressed in whiteI couldn't sing, my throat grew tightMy heart filled up with a Mothers loveWhilst God looked down from up above'Thank-you Lord' i whispered lowFor giving me Bethan, I Love her soI think he heard my silent prayerfor as i watched you standing thereYou turned to me, with eyes so deepAnd squeezed my hand..... your mine to keepThen I led you to the AltarI was nervous but I didn't falterTook you up to take the HostThis was the part that mattered mostThe rest of the mass passed quickly bySoon you were standing under God's great skyThe sunlight danced around your crownand sparkled over your sequinned gownEveryone came to be with youAunts and Uncles, cousins tooBut most of all, who completed our dayWas Nanny and Bampy I have to sayA party followed with family and friendsI wanted this day to never endThe disco boomed out Chart-topping hitsI knew that you were thrilled to bitsYou had lots of cards and presents tooAll these people had come for youWe had lots of fun and danced all daySoon it was time to be on our wayYou thanked all the people who came that dayFor their cards and gifts for your special daySoon it was time for us to go tooTo hang up your dress, pack up your shoesA Beautiful day was had by allYour picture hangs proudly upon the wallTo remind us all of a wondrous dayOf our Darling Bethan on her Communion Day
+Written October 21st, 2001 ©  on Oct 21 2001 01:08 AM PST   0  • 8
