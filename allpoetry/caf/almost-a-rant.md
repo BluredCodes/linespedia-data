@@ -1,0 +1,10 @@
+---
+title: "Almost a Rant"
+writer: "caf"
+slug: "almost-a-rant"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/12794-Almost-a-Rant-by-caf"
+---
+
+Every Country, all aroundHas this shitIt's easily foundWhat to look for?Where can you find it?Afternoon everywhereMillions of people sitListen and watchfor something to see'Love', 'Hate' ,'Friendship'It's all bull to me.Bad actors,all down on their luckhave a second chanceto make an easy buckDeseption and heart acheWhy would they show it?Mothers wouldn't be pulled awayif their children threw a fitJust sitting on a sofawasting all your day,Watching those stupid soap operasyou know what i say?I say there's enough problems,you could make a love song or sing the blues,No need for more crap on TVyou want Bullshit?Turn on the news!My friend was watching a soap today... and i was thinking and remembering how people could always remember a complete story of some peoples life in this tv story.. and they're like 'Oh how sad.. poor him, his dog died his wife fucked his sister and his mother is having a relationship with some rich guy that earlier in the episodes killed his father...' It's all bullshit! and there is enough crap and sadness, happiness in this world with out a bunch of bad actors/actress' to tell an unbelievable story each day at 2pm in the afternoon (by 'Unbelievable' I mean shit not good lol) And yet all this stuff is going on in the real world.. it's just ' Oh .. well that sucks '   ' Too bad for that country!' .. and that's it.. they don't even know the name of the country that has no money... or no food... or everyone is dying from some rare virus... but they do know the whole family geneoligy of some fake soap opera family and who everyone's having sex with and shit... it's weird.And I wasn't meaning to directly attack the people that watch this waste of TV Air time... but just hopefully get them to explain what i missed? like why the fuck are these things so God damn interesting!Ok i gotta go this is upsetting me lmaoGawd! i hate soaps
+Written November 5th, 2001 ©  on Nov 05 2001 04:22 AM PST   0  • 9
