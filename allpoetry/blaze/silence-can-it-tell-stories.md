@@ -1,0 +1,10 @@
+---
+title: "Silence, Can it tell stories?"
+writer: "BlaZe"
+slug: "silence-can-it-tell-stories"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/9115-Silence--Can-it-tell-stories--by-BlaZe"
+---
+
+Silence.Is it nothing?Or is there something unfathomable,Something meaningful in silence.Can it tell stories?Graveyards are silent.The deceased lie in harmony with the world they once shared,The silence hides their dark and horrible stories,Their ghastly forbidden souls,Their ghosts of the night.When one mourns,The silence of the graveyard tells a story.A story of tragedy,A story of delight,A story of life.Churches are silent,The religious enter the sacred place of worship,To consider the possibility of greater things. Thoughts of the inconceivable,Thoughts of eternal happiness.When one prays,The silence of the church tells a story.A story of belief,A story of hope,A story of life.Museums are silent,The lifeless archives gather dust in dull light,No sign of their former glory.Yet to some their still remains much,There is no need for a description.When one browses,The silence of the museum tells a story.A story of historyA story of infinite possibilitiesA story of life.Books are silent,No noise emitted except the flipping of pages.The pages a piece of someone’s mind,A story of something different,A story which those few readers experience.When one reads,The silence of the book tells a story.A story of death,A story of love,A story of lifePeople can be silent,They can choose to live a life of secrecy,A life of privacy,A life where listening is more important than talking.In this way silence can tell you a story.The story of those around you.The story of the wonderful world in which we live.Listen to that silence,Who knows what magical story you may find today.I was inspired to write this poem due to the fact that lots of my mates say I'm too quiet. Even my mum comments on it. My response is 'Try it some time, you learn so much more when u listen...'
+Written October 19th, 2001 ©  on Oct 18 2001 11:38 PM PST   0  • 10
