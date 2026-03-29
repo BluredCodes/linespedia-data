@@ -1,0 +1,10 @@
+---
+title: "Liberated"
+writer: "forgottentreasure"
+slug: "liberated"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/31282-Liberated-by-forgottentreasure"
+---
+
+I've let you change my mind for me every day, i was who you wanted glad to be with you, afraid to be alone thought i would be crushed if i lost you...again the phone call did not puree my heart..did not liquefy my soul this feeling all so new to me...can it be? i shed a tear or two, i do admit but the flow ended suddenly...no more pain perhaps i am maturing...no longer the silly little girl hopelessly in love with you a young woman logically loving another put the puzzle slowly together realized without agony the truth i can be a person alone a whole entity without the physical love of another maybe i am crazy...or perhaps i am finally sane a veil has been lifted from these vivacious eyes the magnificent blue finally able to appreciate foreign colors.... my other senses keener as well the sweet scent of a slowly melting winter......fading sadly into a romantic spring lovely taste of crisp morning dew flowing into my lungs, my every orifice sensuous touch of my down comforter tickling my toe-tips......luxurious pleasures once forgotten once blinded by a love for you that knew---still knows--- no boundaries a love i pampered with every bit of my soul...hopelessly, as always for i never could expect to lose you so suddenly...so rashly baby, don't worry, there is no spite behind my kind, forgiving glance your love...having and then losing.....brought a new purity to my life the heartache sent from you to me was a blessing... ....like a sweet candy enveloped in a garish wrapper... ...or like finding a red rose budding out from under the sewer slush hope rises..a new form of heat found a tremendous loss i guess you only have to know where to look... ...how to search for that bit of sparkling gold on an island of searing hay pleasure is found in pain...i have realized and your clever heart break taught me this lessonany advice? i don't think i like the form it takes...
+Written January 15th, 2001 ©  on Jan 12 2002 01:11 AM PST, Nichole   18  • 0  • 10
