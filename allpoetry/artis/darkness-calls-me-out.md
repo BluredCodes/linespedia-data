@@ -1,0 +1,10 @@
+---
+title: "Darkness calls me out."
+writer: "artis"
+slug: "darkness-calls-me-out"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/40365-Darkness-calls-me-out.-by-artis"
+---
+
+Darkness calls me out, and bids me gointo the humid, star-filled ink of nightmy slippers scritch- scraping cross the deck slapping time to the song of the cricketsas moths commit Harri-Kari against the porch lightslam, sizzle....fall...slam, sizzle.....falla car roars by, it's long, angry,.......... fading whinevanishes quickly over the horizonits occupants unaware of my scrutinyor of the disturbance of peacecaused by their turbulent journeya mosquito buzzes my ear, and finds me lacking as a tasty midnight snack, "Bad blood or something, I guess?"I am alone with my thoughts....and the rhythms of the nightaccentuate my isolation...~my dog pisses on a bushcreating a flow of waste, that will feed the rootsonly to harm them, with toxic, acidic levelsDeath by Bil-Jac!!!my arms are empty, and they miss the fullnessthat they once knew, on nights as lovely as this oneMy heart sits hollow, thumping.....an endless litany oflub,dub,lub,dub,lub,dub, sometimes it is so loud!!That I wish it would just stop,but then I too would be a moth, fleeing the darkness only to be consumed by the lightI crack my knuckles, and the rustle of a raccoon answersI stretch out my arms, reaching for starsI never quite successfully obtainedin all of my performing years, I was more a meteor blazing a trail of glory...now long behind mea firefly lights a path to my weeping willowas if it carries a torch for someone,much like I doLife can at times, be just a pause, a step into the dark side, a mere reflection on thecould havewould haveshould have beensand it is in moments like thesein the depths of a summer nightwhen it all becomes, even more so glaringly apparentlike an old familiar tunethat hums endlessly in my headas I whistle for the dogand stumble off to bedeven though I am longing to goin the other directionto lovingly embrace the unknown~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~Artis
+Written February 10th, 2002 ©  on Feb 10 2002 05:38 AM PST   other
