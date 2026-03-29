@@ -1,0 +1,17 @@
+---
+title: "~i love you~"
+writer: "aphrodite"
+slug: "i-love-you"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/25062--i-love-you--by-aphrodite"
+---
+
+YOU HOLD A SPECIAL PLACE DEEP WITHIN MY HEART
+I LOVE TO BE WITH YOU I HOPE WE NEVER PART
+FOR US TO BE TOGETHER IS SIMPLY DIVINE
+WHEN WE ARE NOT TOGETHER YOU'RE ALWAYS ON MY MIND
+WHEN I LOOK INTO YOUR PRECIOUS BROWN EYES 
+YOU ALWAYS MAKE MY SPIRITS RISE
+YOU COMPLETE ME IN EVERY WAY 
+THAT'S WHY "WE" HAVE GOT TO STAY
+Written December 23rd, 2001 ©  on Dec 23 2001 02:32 PM PST   18  • 0  • 8

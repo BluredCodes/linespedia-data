@@ -1,0 +1,25 @@
+---
+title: "~a sweet feeling~"
+writer: "aphrodite"
+slug: "a-sweet-feeling"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/25069--a-sweet-feeling--by-aphrodite"
+---
+
+LOVE IS A SWEET FEELING 
+BUT YET CAUSES SOME PAIN 
+EMOTIONS CAN BE THRILLING 
+SOME THINK IT'S A GAME
+
+I LOVE WHEN OUR HANDS
+ARE HELD BY EACH OTHER
+& OUR FINGERS LACED
+WHEN YOU TELL ME YOU LOVE ME
+MY HEART STARTS TO RACE
+I LOVE THAT FEELING OF SWEET EMBRACE
+
+      TO LOOK INTO YOU EYES 
+   AND SEE THE BURNING PASSION FOR
+ OUR EVERLASTING LOVE, LETS ME KNOW THIS
+   FEELING IS SENT FROM UP ABOVE!
+Written December 23rd, 2001 ©  on Dec 23 2001 02:40 PM PST   10  • 0  • 8
