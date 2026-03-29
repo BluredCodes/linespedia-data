@@ -1,0 +1,27 @@
+---
+title: "That something"
+writer: "smiley"
+slug: "that-something"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/26000-That-something-by-smiley"
+---
+
+WHEN I LOOK INTO YOUR EYES I SEE SOMETHING IS THERE
+WHEN I LOOK AT YOUR BODY MOVEMENT I KNOW THAT SOMETHING IS THERE.
+
+BUT.......
+WHEN YOU SPEAK NOTHING IS THERE.
+ 
+
+WHEN YOU LAUGH I KNOW THAT SOMETHING IS THERE.
+WHEN YOU STARE THERE IS DEFINITELY SOMETHING THERE.
+WHEN WE ARE ALONE, I KNOW THAT SOMETHING IS THERE.
+
+BUT.......
+WHEN PEOPLE ARE AROUND THAT SOMETHING DISAPPEARS.
+
+
+
+Yvonne Griffin
+3/26/01
+Written December 27th, 2001 ©  on Dec 27 2001 06:19 AM PST, Yvonne J. Griffin   0  • 1
