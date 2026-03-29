@@ -1,0 +1,10 @@
+---
+title: "My True Ending"
+writer: "VampireGirl"
+slug: "my-true-ending"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/34675-My-True-Ending-by-VampireGirl"
+---
+
+I fell apartI can't replace my broken heart.The pieces are crumbled and split in twoall because of you.In my mind your drifting faceI will never again kiss or taste.Your eyes beyond the smilethe easing of my wicked pains for awhile.The drifting of my soulthat leans more to the rightthe pounding of my nightmares leaving me uptight.I wish it hadn't come to this,I should of never thought of your kiss.I was trapped in moonlight bliss.My aching is breaking and tearing me apartI'm falling beneath the bridges of lonelinessIll be trapped in this, for awhile.I better make my self smile,I can't let anyone know my pain,I can't let anyone see my shame.maybe after all I'm the one to blame.I fell in love,you broke my heartI wanted to poke you in the eyesso you couldn't see me cry.But it was overI was to lateyou laughed as you slowly closed the gate.I was emptySo swiftly you walked away.you grabbed your girlfriends handand moved far away.I hate youI cannot believe you would let me hurt this way.You knew I LOVED you, but you did not love me back.You probably just wanted to see how good I was in the sack.I did so much to be with you,I went through so much just to see you.you had no idea I was outside your housewatching you, check your mail.But still you'll never know, and I don't know how.I miss somethingMaybe a BIG part of me?Your like a root that kept growing so fastly.The leafs slowly begin to risethen suddenly broke off and died.And after all this timeI hate youI love youI need youBut its truly my endingBecause in the end, She's the one you'll be kissing.
+Written January 22nd, 2002 ©  on Jan 21 2002 06:57 PM PST, Shelly   0  • 8
