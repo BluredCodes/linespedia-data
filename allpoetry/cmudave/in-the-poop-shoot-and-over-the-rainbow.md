@@ -1,0 +1,14 @@
+---
+title: "In The Poop Shoot And Over The Rainbow"
+writer: "CMUDave"
+slug: "in-the-poop-shoot-and-over-the-rainbow"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/25260-In-The-Poop-Shoot-And-Over-The-Rainbow-by-CMUDave"
+---
+
+Let me first make it clear that any military action by the United States should not be motivated by vengeance. Such a notion is barbaric, irrational and thoroughly un-American. Rather, sound and mindful military action must be conducted to serve as a deterrent from further attacks. Military action must also set a precedent, it shall be a message to all nations that if they harbor, protect, or support terrorists in any way, that they will be held accountable. 
+The Emotional response to the recent attack on the United States has sometimes overshadowed rationality. It shall not be a matter of revenge, but a matter of protecting Americans. Indeed, a great injustice has been inflicted upon our nation, however vengeance serves to accomplish nothing. In fact, it only augments the senseless carnage that is so intolerable. 
+The military action that will inevitably take place should be conducted intelligently, it must be careful; fore it sets the standard for armed conflict for the 21st Century. The nature of both the reaction to and conduct during acts of war for the next hundreds of years will be determined by how this tragedy is dealt with. It is more important now, than any other time in our nation’s history to act with a sound mind. 
+The likely culprit is a non-national terrorist organization that is informally sponsored, harbored, and protected by a state government. Most likely Osama Bin Laden as protected by Afghanistan. The United States should give Afghanistan an opportunity to seek out, and arrest Osama Bin Laden. If the Afghan government does not comply the United States should conduct multilateral air strikes with NATO, bombing Oil refineries, farms, bridges, tunnels, water purification facilities, electrical power plants, and other utilities. After this vast strike, Afghanistan will be given another opportunity to produce Osama Bin Laden and/or his followers. If they do not comply, the United States along with NATO should prepare an invasion of Afghanistan. Nations that currently facilitate the deeds of these madmen must have no doubt that they can no longer welcome them without consequence. These strikes not only serve to accomplish a mission, but also to serve as the ultimate deterrent. Those who hide bodies, and aid conspiracies are just as guilty as those who pull triggers. 
+We cannot stop those who are willing to die for their evil, but we can stop thoseMy essay, A Plan Of Action was written September 13th, just two days after the attacks. It was written and published many days before an official policy  was formed. I put it on to show people how right I am about absolutely everything. :o)
+Written September 13th, 2001 ©  on Dec 28 2001 03:02 PM PST    18  • 0  • 16
