@@ -1,0 +1,10 @@
+---
+title: "Whispers in the Night"
+writer: "drhook"
+slug: "whispers-in-the-night"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/26273-Whispers-in-the-Night-by-drhook"
+---
+
+We whisper our dreams to a nation that doesn't understand our needs my wrist bleeds innocence but I'm on guilty grounds the sounds of my words echo into my empty cave I gave my freedom to a ten dollar high said good bye to my voice and found silence washing his hands in the tears I never shed laying in bed death comes to me in a dream awakened I call her on the phone but I get the machine my thoughts are clean but my hands caked in dirt it does me a world of hurt to see a brother die over the color of a shirt but what can I do my choices are few and I ask who will listen to this man that's miss'n from society they lied to me when they said I was free they went on a kill'n spree and murdered my right to write I lay in bed at night and fight with a voice that's never spoken a broken clock tells me time has just begunI  run because it solves everything I'm scared to try and I cry in darkness because I can't bring to light that I might fear what's in the mirrors and my tears tell a tale of a well I take nothing from and some say that I'm wrong but they've never walked down this long path and felt the wrath of an enemy that's only one because his friends said to be and I've seen three die right in front of my eyes and  in the middle of a riddle and the answer plays a beat on my brain but there's too much pain in change and I find it hard to retain the desire to change my life style I keep the cycle spin'n and I'm win'n the game but I'm the only player I'm the slayer of my own wishes got so many dirty dishes I can't find my way outta the kitchen and I'm switch'n my mind from day to day just look'n for somebody to hear what I say.
+Written December 28th, 2001 ©  on Dec 28 2001 04:52 AM PST   0  • 9
