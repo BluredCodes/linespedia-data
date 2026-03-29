@@ -1,0 +1,10 @@
+---
+title: "The Mind of Our Hero pt. 1 (Prequel to 'The Painting')"
+writer: "bdgrey"
+slug: "the-mind-of-our-hero-pt-1-prequel-to-the-painting"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/30863-The-Mind-of-Our-Hero-pt.-1--Prequel-to-The-Painting--by-bdgrey"
+---
+
+The clock strikes 12 and I must move on,for my cherished heart has finally gone.A world of sin and detriment in lies,has whithered my spirit therefore it slowly dies.Where to go with no way to turn,my soul on fire and nothing left in which to yearn.A reality foregone by years of pain,clouds so dark with blinding acid rain.No hope for a mind lost in deception,can there be no hope with all this misconception?Another year gone with so much in ruin,sickly buildings stand with nothing new again.So long I have desired what could never be,and have constantly dwelled on impossible dreams.One in which a woman centuries past,has taken my heart with love that always lasts.A dream so lost in a futile trough,that I no longer deem it worthy of thought.I awake most mornings with her fresh in mind,from the previous evening where she was apart of mine.A love so great that I had once been addicted,yet after years of sorrow all hope now evicted.So with that in mind I can finally move on,and enjoy the museum tomorrow,where my interest will be strong.Okay, now this is just getting weird, but it's writing itself right now. I had no idea that I would write another prequel, but that's just the way it came out. Sorry for the confusion, which I'm sure I have caused, but when I am finally done with this story, it will all be worth it.  Basically this just explains his state of mind before his encounter, which I think is vital to the growth of the story as a whole. That way you can all watch his character grow. I hadn't even considered this in the book, so this is all new to me. :)And I promise this will be the last prequel.
+Written January 11th, 2002 ©  on Jan 10 2002 03:53 PM PST   0  • 1
