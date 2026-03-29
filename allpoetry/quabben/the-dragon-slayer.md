@@ -1,0 +1,10 @@
+---
+title: "The Dragon Slayer"
+writer: "Quabben"
+slug: "the-dragon-slayer"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/26705-The-Dragon-Slayer-by-Quabben"
+---
+
+The Dragon SlayerI had a dream and I was the star.A hero for sure on a mission so bold.For I have to find, Quabben afar.And slay that big dragon, that beast from of old.I picked up my weapon, just an old sword,And mounted my horse with such a brave heart.With no fear or fright for I knew the words.I am after all just right for the part.My journey went on, day after day.So little sleep, night after night.Oh where is this Dragon I’d often pray,Just place him before me and into my sight.Much had I heard of Quabben the great,So big and fearless his story so told.He’d come down the mountain made of gray slate,And burn off the mettle of each of the foe.After a while, indeed a great age,I stood at the mountain so dull and so gray.I called out to Quabben so war I could wage.He came out of nowhere, Oh I need to pray.Do I stand tall or should I just fall.Can he not hear me not hear my loud shout.Why does he stand there, he heard my call,This while, with no fire in his mouth.His words came to me, just soft and low,“What do you seek oh hero so bold”.“To take of your life so on I can go.I’ll use this here sword that I have from old”.“Then do what you will, it’s you that you’ll kill”,Said this great big dragon to me on my horse.Deep in my soul I knew he was right, he was my thrill.The thrill of the fight, in my mind but of course.My mission was true, I had found me,Up on the hill alone and aloof.I had to come down and let all see,Quabben is me, not fire and smoke, just proof.That all have a dark side until there is light.We all need our heroes to make us go fight.Dreams take away all sadness and plight,And give us our dragons to play with at night.BA
+Written December 29th, 2001 ©  on Dec 28 2001 11:28 PM PST   personal  • adult  • humor
