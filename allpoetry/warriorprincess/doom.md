@@ -1,0 +1,19 @@
+---
+title: "'DooM'"
+writer: "WarriorPrincess"
+slug: "doom"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/38375-DooM-by-WarriorPrincess"
+---
+
+Spinning thoughts, No control...
+Yellow heart, Sickened soul...
+Iniquity & Sin, Confusion within...
+Mutant age fuels a savage rage...
+Twisted clouds form a falling sky,
+River of blood as mankind and earth die...
+Apocolyptic disaster cast by earths evil master...
+                ----Planets DOOMED----
+                    
+                  --Earth CONSUMED--
+Written February 3rd, 2002 ©  on Feb 03 2002 02:58 AM PST   10  • 0  • 9
