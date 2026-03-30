@@ -1,0 +1,75 @@
+---
+title: "'Learning To Live'"
+writer: "RiVeN"
+slug: "learning-to-live"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/59308-Learning-To-Live-by-RiVeN"
+---
+
+There was no time for pain
+No energy for anger
+The sightlessness of hatred slips away
+Walking through winter streets alone
+He stops and takes a breath
+With confidence and self control
+
+I look at the world and see no understanding
+I'm waiting to find some sense of strength
+I'm begging you from the bottom of my heart to show me understanding
+
+I need to live life
+Like some people never will
+So find me kindness
+Find me beauty
+Find me truth
+When temptation brings me to my knees
+And I lay here drained of strength
+Show me kindness
+Show me beauty
+Show me truth
+
+The ways that your heart sounds makes all the difference
+It's what decides if you'll endure the pain that we all feel
+The way that your heart beats makes all the difference
+In learning to live
+Here before me is my soul
+I'm learning to live
+I won't give up
+Till I've no more to give
+
+Listening to the city
+Whispering its violence
+I set out watching from above
+The 90's bring new questions
+New solutions to be found
+I fell in love to be let down
+
+Once again we dance in the crowd
+At times a step away
+From a common fear that's all spread out
+It won't listen to what you say
+Once you're touched and you stand alone
+To face the bitter fight
+Once I reached for love
+And now I reach for life
+
+Another chance to lift my life
+Free the sensation in my heart
+To ride the wings of dreams into changing horizons
+It brings inner peace within my mind,
+
+As I'm lifted from where I've split my life
+I hear an innocent voice
+I hear kindness, beauty and truth
+
+The way your heart sounds makes all the difference
+It's what decides if you'll endure the pain that we all feel
+The way your heart beats makes all the difference
+In learning to live
+Spread before you is your soul
+So forever hold the dreams within our hearts
+Through nature's inflexible grace
+I'm learning to live
+
+--© Dream Theater from the album "Images & Words"This is one of my favorite songs by one of my favorite bands.  I just thought I'd share.  If you can, go and download it.  Or buy the entire album, "Images & Words".  Awesome amazing freakin album
+Written April 10th, 2002 ©  on Apr 09 2002 04:21 PM PST   20  • 0  • 12
