@@ -1,0 +1,16 @@
+---
+title: "Darkness (A Narrative Essay)"
+writer: "wanderingpoet"
+slug: "darkness-a-narrative-essay"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/46531-Darkness--A-Narrative-Essay--by-wanderingpoet"
+---
+
+There is one constant in this world. One thing that someone can rely on. Pain. Pain, translated into the darkness of this world, as this society considers it. Pain is something that you must fight, struggle against for the good of the soul. Pain is something that one must strive to defeat and overcome with bravery and courage.   
+Yet the true nature of pain is constant, unremitting. Pain is in reality the only constant thing in the universe. Pain, the darkness of this place, is the only thing that remains as pure and powerful as it had been in the beginning. Happiness fades, joy loses it’s luster. Love… Well, Love just grows distant with each passing day until it’s only a shadow of that which it’s illusion once was. 
+If you look up into the nighttime sky, what is there? Darkness. An overwhelming sense of darkness. Sure, there is a few shimmering stars up there, with an occasional passing Flight. Yet that plane always moves to the side, those stars are covered by the clouds above, providing only pure darkness. 
+The world is like that? A shadowy planet, shrouded in the darkness of an unrelenting night. With only few, scattered sources of light upon the midnight’s eve. Artificial light, of course. And artificial light always burns out, disappears, and what is left? The darkness in which we had entered, the darkness in which we thrive in.  If you look about you, even on a summer’s day, with the blazing sun stinging down from it’s perch like a cruel mistress holding a leash, you see darkness. Even the sun can be blanketed by stormy clouds of rain and hail. And when that sun is blanketed out of existence, what is left? Darkness, of course. The pain of the world. 
+For me, the only thing stable is pain. It’s there, secured and stored within my chest. When happiness fades, when joy becomes pieces of angered angels, and when hope shatters into oblivion, the only thing stable in my breast is pain. It flows from me, into me, throughout me. Like the darkness flows through narrow edges and hidden corners. 
+I embrace the darkness. I endure the pain. Why? Because it is the only thing that will never go away. It is the only thing that will never abandon me to horrible hands of talon-ed intent. It is the only thing that I can take with me to last me a lifetime. I have had much pain in my life. I have eaten my fill of it, woken up with this pained lover as my bedfellow. And when I encounter those false lights in this world? They eventually all go out. Eventually everything ends, and nothing remains but the darkness once again. 
+So why even attempt to find the light anymore? Why even go the distance, why even fight and struggle against the night? Why not just embrace it for what it is? A stern teacher, it’s lessons sought in misery. Yet a powerful protector, holding one close and never turning aside?Written For A High School Essay Assignment, 
+Written March 1st, 2002 ©  on Mar 01 2002 06:38 AM PST   0  • 13
