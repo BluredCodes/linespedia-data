@@ -1,0 +1,15 @@
+---
+title: "Letter To My Love"
+writer: "AverageStatistic"
+slug: "letter-to-my-love"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/51497-Letter-To-My-Love-by-AverageStatistic"
+---
+
+My dearest love,
+  Hello, how are you?  I'm doing well, ... although I feel like such a bad person.  I just wanted to tell you that I was sorry for last night.  I was thinking about it when I got offline ... just repeating words in my head, over and over again.  I'm sorry that every time we fight about you not talking, I always seem to bring up her, or your friends... I'm sorry if I hurt you constantly.  I have noticed that, I always bring up your friends when we fight ... but you never say anything about mine.  I also noticed that when we fight ... you apologize right away without letting me know how you feel.  I feel so bad that I always blame everything on you ... and I guess I've just been taking this relationship for granted and I'm sorry.  When we argue, I expect to go online and see something from you in my mailbox ... but I can't keep doing that.  I can't keep expecting all these things from you.  I love you, and I can't help that.  Should I help that?  Am I wrong for feeling all this?  For saying all these things to you?  Sometimes I just feel ... useless.  I don't want you to say you're sorry, because that's not your fault ... it's just how I feel.  I should just, accept the fact that you don't talk much... I just feel trapped ... because I'm the one who sits here, talking on and on about the most stupid things ... and you just sit there.  And it makes me feel ... self-conscious.  I feel like I did something wrong.  Like I said something stupid.  You don't know how much I think about you ... talk about you ... feel for you.  For that past, 10 weeks and 2 days ( and even longer then that but we didn't start counting untill 10 weeks and 2 days ago..)... I've been surrounding myself with thoughts of you.  Ask anyone ... when I don't see you for ONE day... My whole personality is completely changed ... and my day, is ruined.  When I think about highschool... and ... the "future" it scares me ... so much.  I don't want to lose you... And I hope you feel the same way.  Or else what am I here for?  Right now, I feel that ... you're my destiny ... my fate.. I feel like, I'm supposed to be with you.  No one else ... you're all I want.  I don't want any of this to change... What can we do?  Why can't we just live out the time we have together right now, rather then fighting all the time?  I know this all sounds pretty... strange.. but I do hope you will write me back... I needed to express myself to you.
+Love Always And Forever,
+JessicaThis is just... one of my many pathetic love letters... just thought I'd share it with everyone.
+Lots -O- Love,
+Jess
+Written March 16th, 2002 ©  on Mar 16 2002 03:19 AM PST   18  • 0  • 8
