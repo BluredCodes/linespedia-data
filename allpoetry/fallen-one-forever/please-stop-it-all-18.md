@@ -1,0 +1,49 @@
+---
+title: "Please Stop It All (18+)"
+writer: "Fallen one forever"
+slug: "please-stop-it-all-18"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/52003-Please-Stop-It-All--18---by-Fallen-one-forever"
+---
+
+I used to love you more than anything....
+You are... were... my father......
+You used to love me, I was your fucking pride and joy.
+The thing you wanted most.... a beautiful baby girl.
+You were so proud the day I was born.....
+You hardly ever put me down I was your favorite.
+But I guess that changed when my mother noticed...
+When she noticed just how much you loved me... how much you adored me.
+How you didn't spend as much time with your son as with your daughter...
+Justin 22 months older than me, the perfect child and me the fuck up.
+But I was your favorite... he was hers...
+She swore that she didn't favor either one of us over the other...
+But every one knew... he was her most precious thing in this world.
+But that she didn't particularly spend much time with me....
+You both had your favorites... father-daughter... mother-son.
+Justin was a fuck up in all ways... you two always fought.
+He'd get pissed and you'd rant.... He'd yell and you'd swing.
+I used to scream for you both to stop... I didn't understand then...
+He hated your authority and what you stood for... he hated you.
+5 months neither of you would speak to one another.. I still didn't get it.
+The he just stopped.... he just didn't give a fuck anymore.
+Justin quit school..... joined the ARMY... and then you got along fine.
+Then you started on me.......... the fighting started.
+I didn't understand why you would get pissed off...
+I never knew if it was the fact my grades fell or if it was me..
+Father...... I didn't get it...I didn't understand at all.
+What you onced prized about me you hated.
+You hated everything I turned out to be..... why I'm not sure.
+I was always the "good" one, I was never the rebel I turned out to be.
+Whatever you said for me to do I did...... but you never acknoledged it.
+You wanted this little perfect child....... that is something I never was.
+You and her where always to busy with HIM to notice me...
+You never thought that anything was wrong or that I was fucked up.
+Mainly because you NEVER fucking asked..... NEVER fucking cared.
+He'd fuck up to get your attention.... and the better I did...
+The more and fucking more you ignored me..... like I didn't exist.
+I still don't understand why I can't love you or her now......
+As a result of this aftermath Justin and I are Close as never before.
+I guess maybe you might one day be happy ........
+When neither one of us are there to fuck up your prefect fucking life!!!For my parents.... mostly my father since my mother is afraid of me... I still don't get it but I don't think they should have had kids....
+Written March 17th, 2002 ©  on Mar 17 2002 02:30 PM PST, Jessica Taylor   18  • 0  • 1
