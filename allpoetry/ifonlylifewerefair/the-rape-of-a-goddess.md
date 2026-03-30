@@ -1,0 +1,10 @@
+---
+title: "The Rape of a Goddess"
+writer: "IfOnlyLifeWereFair"
+slug: "the-rape-of-a-goddess"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/57099-The-Rape-of-a-Goddess-by-IfOnlyLifeWereFair"
+---
+
+"Help me please!" I hear her cry but I don't get up I just wonder why I didn't help that one night I didn't move or put up a fight or even look at the man who was near her in the van He ripped her skirt and tore her shirt open like a paper sack and every day that I am alone I think of getting him back!! He smacked her in the jaw and her mouth was full of blood I didn't know what to do so I just threw some mud. It hit the man in the head and crazed as he was he lunged at me angrily and shot me with his gun. I felt the blast from the bullet tear into my flesh but I got back up again and bit him hard on his now bare chest he screamed in pain and threw me to the side I cried for help but only a small yelp escaped from my mouth I tried as hard as I could but it just wouldn't come out. "Oh god what have I done!" I had to help her now. I lifted myself up and pushed him to the ground. struggling a great deal I went to the woman and helped her up from the floor. She wasn't some dirty whore that could be slapped around for fun. I told her now to run run run run! The man saw me and gave an evil his the look in his eyes told me he was pissed. he took his gun again and shot me in the legs I fell down again tasting dirt along the way. I couldn't see but I heard it all the evil moans and erotic groans of that sick man rubbing his body up and down while the struggling lady screamed with a really loud sound. I crawled to them but it was too late the last thing she cried was the word RAPE! Every night I cry out to her and tell her that I am sorry for not saving her life.I am sorry about the legth of this poem and it is probably not the best i have writtne but hey at least you can tell me that it sucked!!!!!
+Written April 2nd, 2002 ©  on Apr 02 2002 03:14 PM PST   0  • 1
