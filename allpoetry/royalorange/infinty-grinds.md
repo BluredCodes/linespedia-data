@@ -1,0 +1,138 @@
+---
+title: "infinty grinds"
+writer: "royalorange"
+slug: "infinty-grinds"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/58422-infinty-grinds-by-royalorange"
+---
+
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+swooning
+  kissing
+licking
+  biting
+scratching
+  panting
+eating
+  sweating
+moaning
+grinding 
+ cuming
+loving
+ promising
+forever
+ seeing
+alwaysalways
+Written April 7th, 2002 ©  on Apr 06 2002 08:13 PM PST   0  • 16
