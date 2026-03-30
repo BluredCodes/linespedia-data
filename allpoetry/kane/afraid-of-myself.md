@@ -1,0 +1,63 @@
+---
+title: "Afraid of Myself"
+writer: "Kane"
+slug: "afraid-of-myself"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/53216-Afraid-of-Myself-by-Kane"
+---
+
+I'm afraid of Myself,
+I know What I'm capable of,
+There are no consiquences for me,
+But I don't want to hurt no one,
+I contemplate suicide every 10 minutes,
+I know I can Never Be of sound Mind,
+I know I'm afraid of myself,
+Those who I think can Help me,
+Refuse Me,
+AS My mind slips away,
+I feel angry,
+I feel sad,
+I'm Confused,
+So many thoughts,
+I need Relief,
+There is no purpose for any of this,
+I need Purpose,
+And I become more afraid of myself,
+What if I do Find Purpose,
+Like the terrorist hijackers,
+Like Eric Harris and Dillon Klebold,
+Like The Manson Family,
+What if my belief system causes me to hurt,
+I couldn't live with myself,
+hurting other people,
+But what if it was a righteous act,
+And I could Do Good by causing pain,
+The Lord would forgive me,
+Wouldn't he?
+I think he would,
+'Love one another as you love yourself',
+I'm not sure how much I love Myself,
+Is hurting people really that wrong,
+the bible says that people should not be afraid
+of those who kill the body,
+but cannot kill the soul,
+Why do I have to be so confused,
+If I wasn't so confused,
+I wouldn't be so afraid of myself,
+I might even love myself,
+Doctors tell me medication will help me,
+And granted some do,
+But they hurt me too,
+and I don't wish to inflict pain on myself,
+No matter what the cure,
+I need Structure,
+But I can't find it,
+I to find a bootcamp,
+The Military won't except me,
+I'm so confused,
+My voices are comming back to me,
+I heard them mutter last night,
+And I'm afraid of myself,
+Afraid of what I might Do,
+Written March 21st, 2002 ©  on Mar 21 2002 11:30 AM PST   0  • 1
