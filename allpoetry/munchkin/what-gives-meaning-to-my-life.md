@@ -1,0 +1,14 @@
+---
+title: "What Gives Meaning To My Life?"
+writer: "munchkin"
+slug: "what-gives-meaning-to-my-life"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/46872-What-Gives-Meaning-To-My-Life--by-munchkin"
+---
+
+What gives meaning to my life?  What gives me the motivation to wakeup in the morning, get out of bed and start a new day?  I’ve thought a lot about this question in the last few day and came too only one conclusion.  Nothing gives meaning to my life.  My dream and hopes have been shattered.  People who once picked me up are now the once who put me down.   What gave meaning to my life is no longer there.  I’ve come to one conclusion about this question.  That it can make someone commit suicide and that the only reason I am still living is because I am afraid of death.
+
+Before a few years ago I had full meaning to my life.  I knew where I wanted it to go and what I needed to do get there.  I had people in my life that meant something and were always there when I needed them.  Those people that were in my life one-day vanished without a trace.  I lost my parents about a year ago, the day we got into a fight and till this day I feel that it is not fully resolved. I still live with them, but don’t have a relationship with them. I no longer get positive insight from then nor do I get support from them.  I lost a lot of my close friends to drugs.  Some people decide to do things that aren’t great for them and then it destroys the people they once were.  Since I was born I knew I had to work for what I want but it has come down to living life because I have to.  I have to go to school although my goal in life is destroyed.  I feel that I have to live up to my parents’ wishes and expectations.  Life has become a chore that starts when you wake up in the morning to the time you go to bed at night and goes on and on until a person has the will power to end it.
+
+There is nothing in this world that is really holding me to it accept one thing death.  I am afraid of death.  Afraid of what will happen to me in my after life.  What it will fell like to die, is it painful or soothing. I’m not ready to find out not ready to face my fears.  The main reason as to why I am still her today is because of my parents.  I feel that I owe it to my mother to stay her and carry on my life.  She went through a lot of things and complications when I was born and almost lost her life for me.  So overall I believe that that is the meaning of my life is a duty that I owe to one person.This isn;t a poem; just a piece of writting... had to get it out!
+Written April 12th, 2001 ©  on Mar 02 2002 04:16 AM PST   18  • 0  • 1
