@@ -1,0 +1,30 @@
+---
+title: "Poop(warning poop involved)"
+writer: "AFIREinside227"
+slug: "poopwarning-poop-involved"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/44266-Poop-warning-poop-involved--by-AFIREinside227"
+---
+
+SHIT ON THE STREET
+SHIT ON OYUR FEET
+POOP ON THE FLOOR
+SQUIRT AT THE DOOR
+LIE ON THE FLOOR
+AND ILL SHIT ON YOU
+THATS WHAT ILL DO
+SHIT AND RUN
+SHIT AND RUN
+SHIT AND RUN
+SHIT AND RUN
+SHIT AND RUN
+RUN FROM THE SHIT MAN
+THE SHIT MAN
+THE SHIT MAN THE SHIT MAN
+HES GONNA GET YOU WITH HIS POOP GUN
+HIS POOP GUN
+HIS POOP GUN
+AND HES GONNA SHOOT YOU
+HELL SHOOT YOU
+AND YOU ARE GONNA SMELL
+Written February 22nd, 2002 ©  on Feb 22 2002 11:08 AM PST   0  • 14
