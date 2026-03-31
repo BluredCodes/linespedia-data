@@ -1,0 +1,29 @@
+---
+title: "Good-bye, So Long"
+writer: "grumpysmurf"
+slug: "good-bye-so-long"
+source: "AllPoetry"
+url: "https://allpoetry.com/poem/61684-Good-bye--So-Long-by-grumpysmurf"
+---
+
+GOOD-BYE,
+SO LONG,
+I'LL SEE YOU IN NOT TOO LONG.
+IT HURTS TO THINK THAT YOU'LL BE LEFT ALONE. 
+BUT YOU'LL HAVE EACH OTHER TO LEAN ON. 
+SO GOOD-BYE, 
+SO LONG, 
+I HOPE IT WON'T TAKE LONG. 
+I PUT A SLICE UPON MY ARM, 
+AND THEN A FEW MORE. 
+I CRY AND SCREAM IN SO MUCH PAIN,
+THAT I DROP TO THE FLOOR. 
+AS I SIT I LOOK AND SEE MY PRETTY BLUE VEINS. 
+I TOOK A BLOODY RAZOR BLADE AND CUT ACROSS MY FEET. 
+SO GOOD-BYE, 
+SO LONG, 
+I LOVED YOU ALL SO MUCH. 
+GOOD-BYE, 
+SO LONG, 
+I'LL SEE YOU IN NOT TOO LONG.
+Written April 17th, 2002 ©  on Apr 17 2002 03:17 PM PST   18  • 0  • 1
