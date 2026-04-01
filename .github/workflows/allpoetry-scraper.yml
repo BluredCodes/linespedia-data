@@ -14,10 +14,10 @@ jobs:
 
     steps:
       - name: Checkout Repository
-        uses: actions/checkout@v4
+        uses: actions/checkout@v5
 
       - name: Setup Node.js
-        uses: actions/setup-node@v4
+        uses: actions/setup-node@v5
         with:
           node-version: '22'
 
@@ -56,6 +56,8 @@ jobs:
           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
           echo "Scraper blocked. Triggering immediate restart for new IP..."
-          # Note: Self-triggering workflow_dispatch often works even with GITHUB_TOKEN
-          # if 'Permissions > Actions: read and write' is enabled in repo settings.
-          gh workflow run allpoetry-scraper.yml
+          if gh workflow run allpoetry-scraper.yml --ref "${GITHUB_REF_NAME}"; then
+            echo "Restart queued successfully."
+          else
+            echo "::warning::Failed to trigger restart. Check workflow permissions for GITHUB_TOKEN."
+          fi
