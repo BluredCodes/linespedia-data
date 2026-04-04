@@ -1,63 +1,63 @@
-name: AllPoetry Auto Scraper (Recursive)
+# name: AllPoetry Auto Scraper (Recursive)
 
-on:
-  schedule:
-    - cron: '0 * * * *' # Backup hourly trigger
-  workflow_dispatch: # Allow manual trigger / Self-restart
+# on:
+#   schedule:
+#     - cron: '0 * * * *' # Backup hourly trigger
+#   workflow_dispatch: # Allow manual trigger / Self-restart
 
-jobs:
-  scrape:
-    runs-on: ubuntu-latest
-    permissions:
-      contents: write
-      actions: write
+# jobs:
+#   scrape:
+#     runs-on: ubuntu-latest
+#     permissions:
+#       contents: write
+#       actions: write
 
-    steps:
-      - name: Checkout Repository
-        uses: actions/checkout@v5
+#     steps:
+#       - name: Checkout Repository
+#         uses: actions/checkout@v5
 
-      - name: Setup Node.js
-        uses: actions/setup-node@v5
-        with:
-          node-version: '22'
+#       - name: Setup Node.js
+#         uses: actions/setup-node@v5
+#         with:
+#           node-version: '22'
 
-      - name: Install Dependencies
-        run: npm install axios cheerio xml2js
+#       - name: Install Dependencies
+#         run: npm install axios cheerio xml2js
 
-      - name: Run Stateful Scraper
-        id: scraper
-        run: |
-          # Check if already finished
-          FINISHED=$(node -e "const f='./automation/allpoetry-progress.json'; if(require('fs').existsSync(f)){console.log(require(f).finished)}else{console.log(false)}")
-          if [ "$FINISHED" = "true" ]; then
-            echo "All poems already scraped. Stopping forever."
-            exit 0
-          fi
-          node scripts/scrape-allpoetry.cjs
-        continue-on-error: true
+#       - name: Run Stateful Scraper
+#         id: scraper
+#         run: |
+#           # Check if already finished
+#           FINISHED=$(node -e "const f='./automation/allpoetry-progress.json'; if(require('fs').existsSync(f)){console.log(require(f).finished)}else{console.log(false)}")
+#           if [ "$FINISHED" = "true" ]; then
+#             echo "All poems already scraped. Stopping forever."
+#             exit 0
+#           fi
+#           node scripts/scrape-allpoetry.cjs
+#         continue-on-error: true
 
-      - name: Commit and Push Changes
-        id: push
-        run: |
-          git config --global user.name "Linespedia Bot"
-          git config --global user.email "bot@linespedia.com"
-          git add .
-          if ! git diff --staged --quiet; then
-            git commit -m "chore: auto-update AllPoetry dataset and progress [skip ci]"
-            git push
-            echo "pushed=true" >> $GITHUB_OUTPUT
-          else
-            echo "pushed=false" >> $GITHUB_OUTPUT
-          fi
+#       - name: Commit and Push Changes
+#         id: push
+#         run: |
+#           git config --global user.name "Linespedia Bot"
+#           git config --global user.email "bot@linespedia.com"
+#           git add .
+#           if ! git diff --staged --quiet; then
+#             git commit -m "chore: auto-update AllPoetry dataset and progress [skip ci]"
+#             git push
+#             echo "pushed=true" >> $GITHUB_OUTPUT
+#           else
+#             echo "pushed=false" >> $GITHUB_OUTPUT
+#           fi
 
-      - name: Recursive Restart on Block
-        if: steps.scraper.outcome == 'failure'
-        env:
-          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
-        run: |
-          echo "Scraper blocked. Triggering immediate restart for new IP..."
-          if gh workflow run allpoetry-scraper.yml --ref "${GITHUB_REF_NAME}"; then
-            echo "Restart queued successfully."
-          else
-            echo "::warning::Failed to trigger restart. Check workflow permissions for GITHUB_TOKEN."
-          fi
+#       - name: Recursive Restart on Block
+#         if: steps.scraper.outcome == 'failure'
+#         env:
+#           GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+#         run: |
+#           echo "Scraper blocked. Triggering immediate restart for new IP..."
+#           if gh workflow run allpoetry-scraper.yml --ref "${GITHUB_REF_NAME}"; then
+#             echo "Restart queued successfully."
+#           else
+#             echo "::warning::Failed to trigger restart. Check workflow permissions for GITHUB_TOKEN."
+#           fi
